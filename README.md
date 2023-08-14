@@ -6,6 +6,7 @@
 - 我的兴趣爱好：写代码
 - 我的代表作：短链接系统、网页开发助手
 
+![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=svipwing&layout=compact)
 ![GitHub stats](https://github-readme-stats.vercel.app/api?username=svipwing)
 
 <picture>
