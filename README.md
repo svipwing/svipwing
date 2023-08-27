@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-叫做妈妈的人，是不会哭的。 --佚名
+总有一阵风会吹过我再吹过你，总有一个瞬间我们之前的距离是零。 --麦克斯·埃尔曼
 ```
