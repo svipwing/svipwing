@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让子弹飞一会儿！ --张麻子
+我要荣耀向我俯首称臣，征服世界或一无所有。 --空儿卡
 ```
