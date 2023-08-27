@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦想是一个天真的词，实现梦想是一个残酷的词 --佚名
+当一束光照进黑暗，那就有罪，但如果这束光不离开，那便是救赎。 --青春杂货铺
 ```
