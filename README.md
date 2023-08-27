@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-透过你的眼，离别也是诗 --佚名
+心似已灰之木，身如不系之舟。问汝平生功业，黄州惠州儋州。 --苏轼
 ```
