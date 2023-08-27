@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你指尖跃动的电光，是我此生不变的信仰，唯我超电磁炮永世长存。 --佚名
+憧憬，是距离了解最遥远的一种感情。 --佚名
 ```
