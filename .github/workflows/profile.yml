@@ -24,8 +24,8 @@ jobs:
     steps:
       - name: Setup Information
         run: |
-          git config --global user.email 130831920+coolplaylinbot@users.noreply.github.com
-          git config --global user.name coolplaylinbot
+          git config --global user.email 3260130869@qq.com
+          git config --global user.name svipwing
       - name: Checkout
         uses: actions/checkout@v3.6.0
         with:
