@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只有分离后才能懂的事，却没有了感慨的时间。 --波尔茨
+山远天高烟水寒，相思枫叶丹。 --李煜
 ```
