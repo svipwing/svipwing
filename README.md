@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-火焰啊，燃烧吧，燃烧吧！照亮……那孩子的未来。 --维多利亚
+不管什么时候，能够改变世界的人都是一心追逐梦想的人。 --佚名
 ```
