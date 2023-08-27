@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们的学生会长，比高达还强。 --春风千樱
+如果你在看，我就是你的风景。如果你在听，我该有多幸运。 --周佳顺
 ```
