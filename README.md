@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-柴门闻犬吠，风雪夜归人。 --刘长卿
+落霞与孤鹜齐飞，秋水共长天一色。 --王勃
 ```
