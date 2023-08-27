@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-殷勤昨夜三更雨，又得浮生一日凉。 --苏轼
+自立自主总胜过俯首为奴！ --佚名
 ```
