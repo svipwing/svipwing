@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们生活在阴沟里，但有人依然仰望星空。 --陈念
+不管怎么样，未来都是可以改变的。 --佚名
 ```
