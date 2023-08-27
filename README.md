@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总会有始料不及的运气和忽如其来的惊喜！ --佚名
+祈焚天，昙花现。 --朴素
 ```
