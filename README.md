@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们是学生，学生就要有学生的样子。 --佚名
+最最好的，与最最痛苦的，是一样的。 --玛德莱娜
 ```
