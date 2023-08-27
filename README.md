@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-月光的银边把广袤的夜空烫出个洞，里头塞满了少年的梦想。 --余川
+竹杖芒鞋轻胜马，谁怕？一蓑烟雨任平生。 --佚名
 ```
