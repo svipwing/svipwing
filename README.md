@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-いつだって 信じて 可能性 は無限大 --佚名
+虫子从来就没有真正被战胜过。 --刘慈欣
 ```
