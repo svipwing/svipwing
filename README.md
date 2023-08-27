@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最是人间留不住，朱颜辞镜花辞树。 --王国维
+多巴胺不等于爱情，爱情却一定有多巴胺！ --不在爱里迷失
 ```
