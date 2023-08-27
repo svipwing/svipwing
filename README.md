@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿你无所畏惧，向阳而生。 --佚名
+放开我吧，求求你们，放我走吧，让我离开 --佚名
 ```
