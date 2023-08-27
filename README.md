@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-祈焚天，昙花现。 --朴素
+你，对，你，就是你，你是你。 --不到啊
 ```
