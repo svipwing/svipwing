@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虫子从来就没有真正被战胜过。 --刘慈欣
+每一个不曾起舞的日子，都是对生命的辜负。 --尼采
 ```
