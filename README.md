@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-帮助孩子，去实现他的梦想，对大人来说，那是无上的喜悦。 --佚名
+柳庭风静人眠昼，昼眠人静风庭柳。 --苏轼
 ```
