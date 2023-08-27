@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不喜欢什么都是理由，喜欢什么都不是理由。 --木子吻雨叚
+永远不要熄灭心中的火，哪怕别人只看见烟。 --佚名
 ```
