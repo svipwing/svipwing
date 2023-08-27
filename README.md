@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-You complete me ! --joker
+成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
 ```
