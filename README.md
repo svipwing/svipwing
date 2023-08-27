@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
+我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
 ```
