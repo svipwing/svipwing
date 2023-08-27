@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我相信十年后的八月，我们还能再相遇。 --佚名
+生命中曾拥有过的灿烂，原来终究，都需要用孤独去偿还。 --加西亚·马尔克斯
 ```
