@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-到底是孤独的人强大，还是强大的人孤独。 --佚名
+与众不同的生活方式很累人呢，因为找不到借口。 --佚名
 ```
