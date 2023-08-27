@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些人光是遇到就已经赚到了。 --赵紫骅
+善恶终有报，天道好轮回。不信抬头看，苍天饶过谁。 --佚名
 ```
