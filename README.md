@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆是痛苦的根源。 --周星驰
+我和你，可以做朋友吗？ --佚名
 ```
