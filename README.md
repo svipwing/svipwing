@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-故事开始便不承认普通 --佚名
+人类把最精密的保密系统，都用在了自我毁灭上。 --佚名
 ```
