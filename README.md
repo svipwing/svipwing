@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好景不长云遮月。 --山城美佐纪
+如果忘记你那么容易，那我爱你干嘛！ --佚名
 ```
