@@ -1,7 +1,7 @@
 name: Profile
 
 on:
-  schedule: [{ cron: '* * * * *' }]
+  schedule: [{ cron: '*/5 * * * *' }]
   workflow_dispatch:
 
 jobs:
