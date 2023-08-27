@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-多巴胺不等于爱情，爱情却一定有多巴胺！ --不在爱里迷失
+如同这雨，生于天，死于地，这中间的便是人生。 --耳根
 ```
