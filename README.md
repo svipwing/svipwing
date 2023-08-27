@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只是个路过的假面骑士。 --门矢士
+我们生活在阴沟里，但有人依然仰望星空。 --陈念
 ```
