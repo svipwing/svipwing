@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-浮天水送无穷树，带雨云埋一半山。 --佚名
+想留的人却总难留，想说的话都到嘴边。 --佚名
 ```
