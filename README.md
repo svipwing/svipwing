@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-雾柳迷苍星，夜百闻梦云。潦中倒杯酒，终与化月灵。 --月雩
+不喜欢什么都是理由，喜欢什么都不是理由。 --木子吻雨叚
 ```
