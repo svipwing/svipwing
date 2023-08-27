@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不经一番寒彻骨，怎得梅花扑鼻香。 --黄蘖禅师
+好景不长云遮月。 --山城美佐纪
 ```
