@@ -1,0 +1,36 @@
+name: Photo Upgrader
+on:
+  schedule: [{ cron: 30 0 * * * }]
+  workflow_dispatch:
+
+jobs:
+  Photo:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v3.6.0
+        with:
+          token: ${{ secrets.token }}
+      - name: Setup Information
+        run: |
+          git config --global user.email 130831920+coolplaylinbot@users.noreply.github.com
+          git config --global user.name coolplaylinbot
+      - name: Setup Python Environment
+        uses: actions/setup-python@v4
+        with:
+          python-version: "3.11.0"
+      - name: Install dependencies
+        run: python3 -m pip install -r requirements.txt
+      - name: Update Photo
+        run: python3 src/photo.py
+      - name: Update Words
+        run: python3 src/word.py
+      - name: Push to master
+        run: |
+          if [[ -n $(git status -s) ]]; then
+          git add .
+          git commit -m "Update photo.png"
+          git push origin master --force
+          else
+          echo "No Change, Bye bye!"
+          fi
