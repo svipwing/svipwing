@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们所过的每个平凡的日常，也许就是连续发生的奇迹。 --佚名
+智慧需要沉淀，积累才能够饱满。 --路法
 ```
