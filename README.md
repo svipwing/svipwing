@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你是一匹千里马，那么请做自己的伯乐 --佚名
+我们是学生，学生就要有学生的样子。 --佚名
 ```
