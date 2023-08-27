@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无聊的并不是时间，而是平庸无奇的我。 --樱花庄的宠物女孩​
+透过你的眼，离别也是诗 --佚名
 ```
