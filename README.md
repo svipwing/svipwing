@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只是个路过的假面骑士。 --门矢士
+于是荆轲遂就车而去，终已不顾。 --佚名
 ```
