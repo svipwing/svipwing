@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人类把最精密的保密系统，都用在了自我毁灭上。 --佚名
+我想你一定很想知道，你昏迷了多长时间…… --佚名
 ```
