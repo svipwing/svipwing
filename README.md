@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总有一阵风会吹过我再吹过你，总有一个瞬间我们之前的距离是零。 --麦克斯·埃尔曼
+我们生活在阴沟里，但有人依然仰望星空。 --陈念
 ```
