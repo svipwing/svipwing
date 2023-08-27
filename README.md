@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-想留的人却总难留，想说的话都到嘴边。 --佚名
+上帝不会为难头脑简单的孩子 --佚名
 ```
