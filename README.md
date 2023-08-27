@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虚争空言，不如思而试之。 --马钧
+愿你能与你重要的人再次相遇。 --佚名
 ```
