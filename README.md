@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自立自主总胜过俯首为奴！ --佚名
+我相信十年后的八月，我们还能再相遇。 --佚名
 ```
