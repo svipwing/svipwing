@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-空无一物本身，是一些无惧无畏的旅人的起点，却是我的终点。 --佚名
+我触摸不到的除了喜马拉雅山顶的雪，还有你。 --佚名
 ```
