@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢也好，步伐小也罢，是往前走就好。 --佚名
+你指尖跃动的电光，是我此生不变的信仰，唯我超电磁炮永世长存。 --佚名
 ```
