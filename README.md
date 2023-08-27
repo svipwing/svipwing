@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
+火焰啊，燃烧吧，燃烧吧！照亮……那孩子的未来。 --维多利亚
 ```
