@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要有你想要保护的东西，那就拔剑好了。 --佚名
+如果忘记你那么容易，那我爱你干嘛！ --佚名
 ```
