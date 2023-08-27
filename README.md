@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果忘记你那么容易，那我爱你干嘛！ --佚名
+如果政府不能解决问题, 那它本身就成为问题! --佚名
 ```
