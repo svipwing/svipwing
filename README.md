@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们开始一起攀登，这长长的，长长的坡道。 --佚名
+要优秀啊，不然怎么遇见优秀的人！ --佚名
 ```
