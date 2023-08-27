@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春复一春，枝头黄莺飞。秋复一秋，城头大雁归。 --佚名
+金钱总是万能的，好工具总是属于钱包最厚的人。 --青钢影
 ```
