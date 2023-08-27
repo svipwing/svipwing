@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-庭前落尽梧桐，水边开彻芙蓉。 --朱庭玉
+后来，错过也成了人间常态。 --焦糖and瓜子
 ```
