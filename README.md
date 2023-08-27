@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿你能与你重要的人再次相遇。 --佚名
+慢也好，步伐小也罢，是往前走就好。 --佚名
 ```
