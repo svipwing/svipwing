@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最最好的，与最最痛苦的，是一样的。 --玛德莱娜
+世间情动，不过盛夏白瓷梅子汤，碎冰碰壁当啷响。 --佚名
 ```
