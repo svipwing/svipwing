@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对于我们的幸福来说，别人的看法在本质上来讲并不十分重要。 --叔本华
+你，对，你，就是你，你是你。 --不到啊
 ```
