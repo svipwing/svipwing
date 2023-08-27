@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬是距离理解最遥远的感情。 --佚名
+如果有舍弃地狱的，那也该有救赎地狱的！ --黑谷山女
 ```
