@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-落霞与孤鹜齐飞，秋水共长天一色。 --王勃
+虚争空言，不如思而试之。 --马钧
 ```
