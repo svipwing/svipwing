@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔岸无旧情，姑苏有钟声。 --林夕
+我和我的小伙伴们都惊呆了！ --佚名
 ```
