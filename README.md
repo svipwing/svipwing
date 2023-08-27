@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-金钱总是万能的，好工具总是属于钱包最厚的人。 --青钢影
+因为你喜欢海，所以我一直浪。 --佚名
 ```
