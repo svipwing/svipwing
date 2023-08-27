@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬，是距离了解最遥远的一种感情。 --佚名
+隔岸无旧情，姑苏有钟声。 --林夕
 ```
