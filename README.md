@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你在看，我就是你的风景。如果你在听，我该有多幸运。 --周佳顺
+いつだって 信じて 可能性 は無限大 --佚名
 ```
