@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-呜呼！楚虽三户能亡秦，岂有堂堂中国空无人！ --陆游
+再强的敌人在最后一集的主角面前也是渣渣。 --佚名
 ```
