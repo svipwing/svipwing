@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我没有梦想，但我可以守护别人的梦想！ --乾巧
+我只是个路过的假面骑士。 --门矢士
 ```
