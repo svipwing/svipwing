@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我和你，可以做朋友吗？ --佚名
+呜呼！楚虽三户能亡秦，岂有堂堂中国空无人！ --陆游
 ```
