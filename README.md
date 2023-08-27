@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-收获了，名为夏日回忆的宝物。 --希耶斯塔
+空无一物本身，是一些无惧无畏的旅人的起点，却是我的终点。 --佚名
 ```
