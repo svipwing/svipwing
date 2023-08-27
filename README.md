@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如同这雨，生于天，死于地，这中间的便是人生。 --耳根
+红颜未老恩先断，斜倚薰笼坐到明。 --白居易
 ```
