@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春来我不先游泳，哪只虫儿敢过江？ --佚名
+无聊的并不是时间，而是平庸无奇的我。 --樱花庄的宠物女孩​
 ```
