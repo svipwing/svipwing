@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我想你一定很想知道，你昏迷了多长时间…… --佚名
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 ```
