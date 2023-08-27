@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有舍弃地狱的，那也该有救赎地狱的！ --黑谷山女
+春来我不先游泳，哪只虫儿敢过江？ --佚名
 ```
