@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
+收获了，名为夏日回忆的宝物。 --希耶斯塔
 ```
