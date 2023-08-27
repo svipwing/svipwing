@@ -1,7 +1,7 @@
 name: Photo Upgrader
 on:
   schedule: [{ cron: 30 0 * * * }]
-  workflow_dispatch:
+  push:
 
 jobs:
   Photo:
@@ -30,7 +30,7 @@ jobs:
           if [[ -n $(git status -s) ]]; then
           git add .
           git commit -m "Update photo.png"
-          git push origin master --force
+          git push origin main --force
           else
           echo "No Change, Bye bye!"
           fi
