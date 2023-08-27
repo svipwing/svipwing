@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-善恶终有报，天道好轮回。不信抬头看，苍天饶过谁。 --佚名
+高调做事，低调做人。 --佚名
 ```
