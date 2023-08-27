@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管什么时候，能够改变世界的人都是一心追逐梦想的人。 --佚名
+要么忙着生存要么赶着去死，人总要做点什么。 --佚名
 ```
