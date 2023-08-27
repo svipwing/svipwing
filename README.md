@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-上帝不会为难头脑简单的孩子 --佚名
+不经一番寒彻骨，怎得梅花扑鼻香。 --黄蘖禅师
 ```
