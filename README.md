@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每一个不曾起舞的日子，都是对生命的辜负。 --尼采
+我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
 ```
