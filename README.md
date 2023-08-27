@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我无处不在 --佚名
+我们的学生会长，比高达还强。 --春风千樱
 ```
