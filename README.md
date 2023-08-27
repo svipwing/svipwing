@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对自己的爱好保持热情，不要太功利！ --我叫何同学
+我们生活在阴沟里，但有人依然仰望星空。 --陈念
 ```
