@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-心似已灰之木，身如不系之舟。问汝平生功业，黄州惠州儋州。 --苏轼
+生命中，再无聊的时光，也都是限量版。 --佚名
 ```
