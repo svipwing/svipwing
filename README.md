@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+我们开始一起攀登，这长长的，长长的坡道。 --佚名
 ```
