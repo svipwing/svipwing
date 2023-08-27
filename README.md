@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-于是荆轲遂就车而去，终已不顾。 --佚名
+爱欲于人，犹如执炬，逆风而行，必有烧手之患。 --佚名
 ```
