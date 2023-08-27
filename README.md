@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命中，再无聊的时光，也都是限量版。 --佚名
+故事开始便不承认普通 --佚名
 ```
