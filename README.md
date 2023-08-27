@@ -10,8 +10,8 @@
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=svipwing&layout=compact)
 
 <picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/svipwing/svipwing/output/github-snake-dark.svg" />
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/svipwing/svipwing/output/github-snake.svg" />
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/svipwing/svipwing/main/github-snake-dark.svg" />
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/svipwing/svipwing/main/github-snake.svg" />
   <img alt="github-snake" src="https://raw.githubusercontent.com/svipwing/svipwing/main/github-snake.svg" />
 </picture>
 
