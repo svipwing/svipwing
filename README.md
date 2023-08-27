@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱欲于人，犹如执炬，逆风而行，必有烧手之患。 --佚名
+蔷薇不管被冠以什么名字，却依旧可以芳香扑鼻。 --佚名
 ```
