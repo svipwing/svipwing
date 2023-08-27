@@ -55,7 +55,7 @@ jobs:
           if [[ -n $(git status -s) ]]; then
           git add .
           git commit -m "Update SNK"
-          git push origin master --force
+          git push origin main --force
           else
           echo "No Change, Bye bye!"
           fi
