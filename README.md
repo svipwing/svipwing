@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我和你，可以做朋友吗？ --佚名
+现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
 ```
