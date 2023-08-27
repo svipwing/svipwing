@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-智慧需要沉淀，积累才能够饱满。 --路法
+浮天水送无穷树，带雨云埋一半山。 --佚名
 ```
