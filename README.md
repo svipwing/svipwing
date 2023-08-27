@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-永远不要熄灭心中的火，哪怕别人只看见烟。 --佚名
+我和你，可以做朋友吗？ --佚名
 ```
