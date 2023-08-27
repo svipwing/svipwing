@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我触摸不到的除了喜马拉雅山顶的雪，还有你。 --佚名
+故事开始便不承认普通 --佚名
 ```
