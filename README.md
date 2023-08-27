@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-再强的敌人在最后一集的主角面前也是渣渣。 --佚名
+极霸矛，湘阿痕响啊。 --王爷
 ```
