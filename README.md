@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山远天高烟水寒，相思枫叶丹。 --李煜
+帮助孩子，去实现他的梦想，对大人来说，那是无上的喜悦。 --佚名
 ```
