@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-红颜未老恩先断，斜倚薰笼坐到明。 --白居易
+只要有你想要保护的东西，那就拔剑好了。 --佚名
 ```
