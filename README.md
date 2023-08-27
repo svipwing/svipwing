@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我站在路口，哈出的气可以把那些六角形的雪融化。 --佚名
+有些人光是遇到就已经赚到了。 --赵紫骅
 ```
