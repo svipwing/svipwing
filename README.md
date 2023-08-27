@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要优秀啊，不然怎么遇见优秀的人！ --佚名
+憧憬是距离理解最遥远的感情。 --佚名
 ```
