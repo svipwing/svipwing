@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-始终弄不明白，合适和喜欢哪个更重要。 --Qicloud
+我们所过的每个平凡的日常，也许就是连续发生的奇迹。 --佚名
 ```
