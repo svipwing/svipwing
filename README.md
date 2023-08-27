@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与众不同的生活方式很累人呢，因为找不到借口。 --佚名
+故事开始便不承认普通 --佚名
 ```
