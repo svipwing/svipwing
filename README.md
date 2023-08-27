@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-蔷薇不管被冠以什么名字，却依旧可以芳香扑鼻。 --佚名
+记忆是痛苦的根源。 --周星驰
 ```
