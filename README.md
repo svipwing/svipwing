@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我和我的小伙伴们都惊呆了！ --佚名
+只有分离后才能懂的事，却没有了感慨的时间。 --波尔茨
 ```
