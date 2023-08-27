@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命中曾拥有过的灿烂，原来终究，都需要用孤独去偿还。 --加西亚·马尔克斯
+一点星光，在心上就能反射出太阳。 --学而思
 ```
