@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+真正要分开的两个人，连“分手”二字都是多余的，因为殊途同归。 --佚名
 ```
