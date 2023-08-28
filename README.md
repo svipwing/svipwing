@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦は终わり目を觉ます时、绝望や希望も同时に目を觉ました。 --佚名
+我不会忘记，一直，都留在我的心间。 --井上心叶
 ```
