@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦想还是要有的，万一见鬼了呢？ --佚名
+我们把世界看错，反说它欺骗了我们。 --泰戈尔
 ```
