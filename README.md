@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我裤子都脱了你就给我看这个！！！ --佚名
+我曾经也许是个好人，但现在，我只是个士兵。 --佚名
 ```
