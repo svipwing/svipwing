@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们把世界看错，反说它欺骗了我们。 --泰戈尔
+有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
 ```
