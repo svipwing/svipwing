@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-来人间一趟 你要看看太阳。 --薯味博饼
+寻找比自己更没用的人，沉浸于这样的优越感中。 --佚名
 ```
