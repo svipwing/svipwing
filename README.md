@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记性太好，有时候是一种负担。容易忘记往事的人，是幸福的。 --佚名
+幸旧颜隔世不曾凋谢，且再执手共看天地静切。 --罗辑
 ```
