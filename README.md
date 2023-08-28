@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总是在失去后，才会想再拥有，总是在离别中，才想在回头。 --耳根
+荒桥断浦，柳阴撑出扁舟小。 --张炎
 ```
