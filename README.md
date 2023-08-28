@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能够原谅女人的，才是男人。 --佚名
+要保持希望在每天清晨太阳升起。 --佚名
 ```
