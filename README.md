@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我也想杀死伤痛，让那恩怨有始有终。 --刘森
+哪怕一百个愚笨的人在一起聚会，也无法产生一个智慧的人。 --叔本华
 ```
