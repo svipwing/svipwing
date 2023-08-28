@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天不生我李淳罡，剑道万古如长夜。 --佚名
+所爱隔山海，山海不可平。 --littlesen
 ```
