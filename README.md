@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-即使人生是一场悲剧，也应该笑着把人生演完。 --尼采
+月光的银边把广袤的夜空烫出个洞，里头塞满了少年的梦想。 --余川
 ```
