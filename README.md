@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们的学生会长，比高达还强。 --春风千樱
+荷尔蒙决定一见钟情，多巴胺决定天长地久。 --不自爱里迷失
 ```
