@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界上有太多孤独的人害怕先踏出第一步。 --佚名
+希望老师像帮我一样帮帮れいジ --佚名
 ```
