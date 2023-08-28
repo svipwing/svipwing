@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谎言重复一千遍就成了真理。 --戈培尔
+我在最没有能力的年纪，遇见了最想照顾一生的人。 --佚名
 ```
