@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-韶华不为少年留。恨悠悠。几时休。 --秦观
+你，对，你，就是你，你是你。 --不到啊
 ```
