@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在不同的遭遇里我发现你的瞬间，有种不可言说的温柔直觉。 --郭顶
+我愿供灯千盏，照彻长夜，即便飞蛾扑火，也无所畏惧。 --佚名
 ```
