@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
+你为了你的正义，我为了我的正义。 --佚名
 ```
