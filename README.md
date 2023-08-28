@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-用伤害无辜者来掩盖自己的错误是心虚的体现，也永远掩盖不了。 --Hannah_AI
+有些人光是遇到就已经赚到了。 --赵紫骅
 ```
