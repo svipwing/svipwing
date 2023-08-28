@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你还是这么冷漠啊。不过，仅此而已的话，我是不会泄气的。 --佚名
+我忘记了所有悲剧，看到的都是奇迹。 --奎若
 ```
