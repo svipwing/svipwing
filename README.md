@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-遇事不决，可问春风，春风不语，遵循己心。 --烽火戏诸侯
+好了 接下来就让你们见识一下程序员的本事 --佚名
 ```
