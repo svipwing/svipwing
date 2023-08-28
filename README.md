@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最初的鸟儿是不会飞翔的，飞翔是他们勇敢跃入峡谷的奖励。 --温迪
+竹杖芒鞋轻胜马，谁怕？一蓑烟雨任平生。 --佚名
 ```
