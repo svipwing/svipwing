@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人不是靠做出来的 而是靠活出来的。 --佚名
+愿时光能缓，愿故人不散！ --佚名
 ```
