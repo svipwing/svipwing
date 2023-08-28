@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-外表可是具有欺骗性的。 --妖姬
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 ```
