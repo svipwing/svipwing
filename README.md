@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若是你所期望的，那定会得到强烈的回应。 --米津玄师
+以凡人之躯，比肩神明。 --塞涅卡
 ```
