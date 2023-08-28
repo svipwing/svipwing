@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这是在是我所知物理学中最富诗意的东西：你的一切都是星辰。 --佚名
+梦想还是要有的，万一见鬼了呢？ --佚名
 ```
