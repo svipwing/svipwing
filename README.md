@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-即便分开，羁绊仍然是存在的，这就是所谓的家人。 --佚名
+苟利国家生死以，岂因祸福避趋之 --林则徐
 ```
