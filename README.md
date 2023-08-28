@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我命令你，喜欢我！ --佚名
+公民们，庇护所即将关闭，感谢所有人，再见。 --佚名
 ```
