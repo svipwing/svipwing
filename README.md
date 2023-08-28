@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要万事俱备，就能一直保持冷静，无论发生什么事，都不会害怕。 --佚名
+希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
 ```
