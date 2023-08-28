@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-变好的过程都不太舒服，试试再努力点。 --pony
+梧桐叶上三更雨，叶叶声声是别离。 --周紫芝
 ```
