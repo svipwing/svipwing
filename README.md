@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我要把你叫醒，哪怕赌上我的一切。 --佚名
+我们的学生会长，比高达还强。 --春风千樱
 ```
