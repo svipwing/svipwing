@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正的恐怖，存在于约定俗成的恐怖之外。 --佚名
+人只有在害怕的时候才会变勇敢。 --佚名
 ```
