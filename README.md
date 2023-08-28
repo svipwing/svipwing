@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一别都门三改火，天涯踏尽红尘。 --苏轼
+哪一场仗不难打，越难打，就更要打。 --余从戎
 ```
