@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让时光静静悄悄的流，把所有遗憾和失落都带走。 --乌贼酱
+爸爸我也不是一生下来就是爸爸，爸爸也是头一次当爸爸。 --德善父亲
 ```
