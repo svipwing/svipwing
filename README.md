@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-内心湛然，则无往而不乐。 --梁实秋先生
+每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
 ```
