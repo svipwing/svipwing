@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要不失去你的崇高，整个世界都会为你敞开。 --七天神像
+你才是⑨！你全家都是⑨！ --佚名
 ```
