@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好了 接下来就让你们见识一下程序员的本事 --佚名
+无垢清净光，慧日破诸暗，能伏灾风火，普明照世间。 --鸠摩罗什
 ```
