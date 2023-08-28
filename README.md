@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-I will always be here for you. --佚名
+故人啊 已做了他人嫁 --佚名
 ```
