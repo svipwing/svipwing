@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Control is Power. --奥斯卡·辛德勒
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 ```
