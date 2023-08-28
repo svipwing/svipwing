@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无垢清净光，慧日破诸暗，能伏灾风火，普明照世间。 --鸠摩罗什
+从一开始，我就不那么喜欢你。 --佚名
 ```
