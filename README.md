@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-从一开始，我就不那么喜欢你。 --佚名
+变好的过程都不太舒服，试试再努力点。 --pony
 ```
