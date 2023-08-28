@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我做错了什么，对不起。 --罗辑
+新时代，共享未来！ --佚名
 ```
