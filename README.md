@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望老师像帮我一样帮帮れいジ --佚名
+兰有秀兮菊有芳，怀佳人兮不能忘。 --刘彻
 ```
