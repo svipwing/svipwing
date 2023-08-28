@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你指尖跳动的电光，是我此生不变的信仰 --佚名
+跌跌撞撞的成长，又美又疼才是本质。 --夏达
 ```
