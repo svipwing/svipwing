@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-荒桥断浦，柳阴撑出扁舟小。 --张炎
+遇事不决，可问春风，春风不语，遵循己心。 --烽火戏诸侯
 ```
