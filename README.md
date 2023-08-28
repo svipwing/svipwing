@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿时光能缓，愿故人不散！ --佚名
+这是在是我所知物理学中最富诗意的东西：你的一切都是星辰。 --佚名
 ```
