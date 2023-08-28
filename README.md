@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为痛苦太有价值，因为回忆太珍贵，所以我们更要继续往前走。 --佚名
+梦は终わり目を觉ます时、绝望や希望も同时に目を觉ました。 --佚名
 ```
