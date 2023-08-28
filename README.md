@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们终此一生，就是要摆脱他人的期待，找到真正的自己。 --佚名
+一起去看星星吧。 --佚名
 ```
