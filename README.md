@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对自己的爱好保持热情，不要太功利！ --我叫何同学
+望不穿那海底突然跌落的暗与无穷。 --夙鱼
 ```
