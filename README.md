@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我又不是因为你们的评价才去当的英雄，是因为我想当才去当的。 --佚名
+最初的鸟儿是不会飞翔的，飞翔是他们勇敢跃入峡谷的奖励。 --温迪
 ```
