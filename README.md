@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一起去看星星吧。 --佚名
+记性太好，有时候是一种负担。容易忘记往事的人，是幸福的。 --佚名
 ```
