@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爸爸我也不是一生下来就是爸爸，爸爸也是头一次当爸爸。 --德善父亲
+人不是靠做出来的 而是靠活出来的。 --佚名
 ```
