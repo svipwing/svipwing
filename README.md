@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若以色见我，以音声求我，是人行邪道，不能见如来。 --鸠摩罗什
+生活是晨起暮落，日子是柴米油盐，喜欢烟火气的平淡与真实。 --佚名
 ```
