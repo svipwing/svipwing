@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
+飞鸟不留痕，但我已飞过。 --泰戈尔
 ```
