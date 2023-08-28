@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我不喜欢这世界，我只喜欢你。 --佚名
+谎言重复一千遍就成了真理。 --戈培尔
 ```
