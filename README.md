@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你是否会等待着我?我还想变的更加完美... --佚名
+韶华不为少年留。恨悠悠。几时休。 --秦观
 ```
