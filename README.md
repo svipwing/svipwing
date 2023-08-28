@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你为了你的正义，我为了我的正义。 --佚名
+宇宙是蚂蚁的梦。 --佚名
 ```
