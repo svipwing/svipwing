@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+我在最没有能力的年纪，遇见了最想照顾一生的人。 --佚名
 ```
