@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有舍弃地狱的，那也该有救赎地狱的！ --黑谷山女
+迎着风，拥抱彩虹！ --黄霄雲
 ```
