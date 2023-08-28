@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算终有一散也别辜负相遇。 --网络
+Stay hungry, Stay foolish. --史蒂夫-乔布斯
 ```
