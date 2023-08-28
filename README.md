@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些人光是遇到就已经赚到了。 --赵紫骅
+我命令你，喜欢我！ --佚名
 ```
