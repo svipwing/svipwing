@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-迎着风，拥抱彩虹！ --黄霄雲
+一别都门三改火，天涯踏尽红尘。 --苏轼
 ```
