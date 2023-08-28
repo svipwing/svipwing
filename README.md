@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-月光的银边把广袤的夜空烫出个洞，里头塞满了少年的梦想。 --余川
+就算终有一散也别辜负相遇。 --网络
 ```
