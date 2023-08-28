@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虽然我和他已十年不见，但我知道我会永远怀念他。 --伴我同行
+海上生明月，天涯共此时。 --张九龄
 ```
