@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你要乖，要长大，要不负众望。 --佚名
+我不喜欢这世界，我只喜欢你。 --佚名
 ```
