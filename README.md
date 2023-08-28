@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-故人啊 已做了他人嫁 --佚名
+只要万事俱备，就能一直保持冷静，无论发生什么事，都不会害怕。 --佚名
 ```
