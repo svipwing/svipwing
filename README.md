@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山有木兮木有枝，心悦君兮君不知。 --佚名
+因为痛苦太有价值，因为回忆太珍贵，所以我们更要继续往前走。 --佚名
 ```
