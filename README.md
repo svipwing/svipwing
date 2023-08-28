@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-浅情终似，行云无定，犹到梦魂中。 --佚名
+野蛮人之间人吃人，文明人之间人骗人。 --叔本华
 ```
