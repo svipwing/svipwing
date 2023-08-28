@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跌跌撞撞的成长，又美又疼才是本质。 --夏达
+加油！和你们在一起！ --佚名
 ```
