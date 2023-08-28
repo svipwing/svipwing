@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪一场仗不难打，越难打，就更要打。 --余从戎
+我们历经沧桑，这样错过了一生最好的时光。 --佚名
 ```
