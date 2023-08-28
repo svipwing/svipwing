@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我忘记了所有悲剧，看到的都是奇迹。 --奎若
+和你们这些少爷不同，我们光是活着就竭尽全力了。 --佚名
 ```
