@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宇宙是蚂蚁的梦。 --佚名
+死在遗忘的沙丘，直到忘记你，想要忘掉一个人，只能想起你。 --双十
 ```
