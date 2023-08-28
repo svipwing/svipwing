@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-幸旧颜隔世不曾凋谢，且再执手共看天地静切。 --罗辑
+实变函数学十遍，泛函学完心泛寒。 --佚名
 ```
