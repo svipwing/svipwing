@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所爱隔山海，山海不可平。 --littlesen
+愿你有一天，能与你最重要的人重逢 --佚名
 ```
