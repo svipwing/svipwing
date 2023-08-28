@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪怕一百个愚笨的人在一起聚会，也无法产生一个智慧的人。 --叔本华
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 ```
