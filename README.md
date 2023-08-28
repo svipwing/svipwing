@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-飞鸟不留痕，但我已飞过。 --泰戈尔
+你，对，你，就是你，你是你。 --不到啊
 ```
