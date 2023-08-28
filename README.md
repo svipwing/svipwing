@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人只有在害怕的时候才会变勇敢。 --佚名
+搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
 ```
