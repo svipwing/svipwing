@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我曾经也许是个好人，但现在，我只是个士兵。 --佚名
+Control is Power. --奥斯卡·辛德勒
 ```
