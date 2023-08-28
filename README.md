@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对于德国的奴隶，没有什么比死亡更可怕，感谢这场核战！ --The New Order:Last Days of Europe
+不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
 ```
