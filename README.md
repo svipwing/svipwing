@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-死在遗忘的沙丘，直到忘记你，想要忘掉一个人，只能想起你。 --双十
+虽然我和他已十年不见，但我知道我会永远怀念他。 --伴我同行
 ```
