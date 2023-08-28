@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-苟利国家生死以，岂因祸福避趋之 --林则徐
+现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
 ```
