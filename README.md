@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人，只有在放弃战斗的时候才算输，只要坚持战斗，就还没输！ --佚名
+每一个不曾起舞的日子，都是对生活的辜负！ --尼采
 ```
