@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-征服可能会受挫，但好奇从未停息。 --佚名
+对自己的爱好保持热情，不要太功利！ --我叫何同学
 ```
