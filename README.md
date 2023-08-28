@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有志者，事竟成。 --佚名
+总是在失去后，才会想再拥有，总是在离别中，才想在回头。 --耳根
 ```
