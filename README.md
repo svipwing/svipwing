@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-事與願違，安天命乎？ --朴素
+浅情终似，行云无定，犹到梦魂中。 --佚名
 ```
