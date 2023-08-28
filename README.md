@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-加油！和你们在一起！ --佚名
+若是你所期望的，那定会得到强烈的回应。 --米津玄师
 ```
