@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一定没有问题的！ --佚名
+内心湛然，则无往而不乐。 --梁实秋先生
 ```
