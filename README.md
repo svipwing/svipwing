@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-公民们，庇护所即将关闭，感谢所有人，再见。 --佚名
+我们终此一生，就是要摆脱他人的期待，找到真正的自己。 --佚名
 ```
