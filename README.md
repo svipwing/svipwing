@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-永不改变的东西和美丽的东西也是存在的。 --井上心叶
+征服可能会受挫，但好奇从未停息。 --佚名
 ```
