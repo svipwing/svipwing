@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Stay hungry, Stay foolish. --史蒂夫-乔布斯
+我又不是因为你们的评价才去当的英雄，是因为我想当才去当的。 --佚名
 ```
