@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正要分开的两个人，连“分手”二字都是多余的，因为殊途同归。 --佚名
+你是故意找茬是不是？ --华强
 ```
