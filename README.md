@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要保持希望在每天清晨太阳升起。 --佚名
+我会一直喜欢到你不再需要我喜欢你为止。 --巫哲
 ```
