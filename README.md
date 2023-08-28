@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-剃刀边缘怎能起造伽蓝。 --木心
+山有木兮木有枝，心悦君兮君不知。 --佚名
 ```
