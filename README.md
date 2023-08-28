@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-望不穿那海底突然跌落的暗与无穷。 --夙鱼
+今日过后，所有晦暗都留给过往，凛冬散尽，星河长明。 --网络
 ```
