@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-云外有天，年月有歌。 --佚名
+我要把你叫醒，哪怕赌上我的一切。 --佚名
 ```
