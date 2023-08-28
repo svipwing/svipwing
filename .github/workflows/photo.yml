@@ -1,6 +1,6 @@
 name: Photo Upgrader
 on:
-  schedule: [{ cron: 30 0 * * * }]
+  schedule: [{ cron: 0 */1 * * * }]
   push:
 
 jobs:
