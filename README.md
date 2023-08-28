@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-竹杖芒鞋轻胜马，谁怕？一蓑烟雨任平生。 --佚名
+到底是孤独的人强大，还是强大的人孤独。 --佚名
 ```
