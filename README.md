@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-老子就是一门炮。 --伍万里
+我不分白天或黑夜，因为我觉得我的人生就像在白夜中行走。 --佚名
 ```
