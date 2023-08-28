@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今日过后，所有晦暗都留给过往，凛冬散尽，星河长明。 --网络
+你是否会等待着我?我还想变的更加完美... --佚名
 ```
