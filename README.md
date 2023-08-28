@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-可这世间疾苦，照样没放过我 --佚名
+你可以用计算机创造美和艺术，计算机使生活更美好。 --保罗•格雷厄姆
 ```
