@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-野蛮人之间人吃人，文明人之间人骗人。 --叔本华
+若以色见我，以音声求我，是人行邪道，不能见如来。 --鸠摩罗什
 ```
