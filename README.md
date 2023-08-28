@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活是晨起暮落，日子是柴米油盐，喜欢烟火气的平淡与真实。 --佚名
+我也想杀死伤痛，让那恩怨有始有终。 --刘森
 ```
