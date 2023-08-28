@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-以凡人之躯，比肩神明。 --塞涅卡
+外表可是具有欺骗性的。 --妖姬
 ```
