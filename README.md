@@ -18,5 +18,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我愿供灯千盏，照彻长夜，即便飞蛾扑火，也无所畏惧。 --佚名
+你指尖跳动的电光，是我此生不变的信仰 --佚名
 ```
