@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+你还是这么冷漠啊。不过，仅此而已的话，我是不会泄气的。 --佚名
 ```
