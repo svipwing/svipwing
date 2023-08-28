@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-寻找比自己更没用的人，沉浸于这样的优越感中。 --佚名
+即便分开，羁绊仍然是存在的，这就是所谓的家人。 --佚名
 ```
