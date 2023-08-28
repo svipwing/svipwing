@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梧桐叶上三更雨，叶叶声声是别离。 --周紫芝
+我会尽力不犯错的…… --冥界使者哈娜
 ```
