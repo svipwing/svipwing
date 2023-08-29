@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一山还比一山高，强中更有强中手！ --兽人剑士蕾伊
+因为你喜欢海，所以我一直浪。 --佚名
 ```
