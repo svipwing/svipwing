@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-纵使一次也好，我也想在这个星球上尽情奔跑啊！ --诗音
+我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
 ```
