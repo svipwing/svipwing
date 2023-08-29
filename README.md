@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+数人世相逢，百年欢笑，能得几回又。 --何梦桂
 ```
