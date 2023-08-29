@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-新时代，共享未来！ --佚名
+因为你喜欢海，所以我一直浪。 --佚名
 ```
