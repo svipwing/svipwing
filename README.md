@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-墙角数枝梅，凌寒独自开。 --王安石
+我们是学生，学生就要有学生的样子。 --佚名
 ```
