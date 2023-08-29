@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-数人世相逢，百年欢笑，能得几回又。 --何梦桂
+一山还比一山高，强中更有强中手！ --兽人剑士蕾伊
 ```
