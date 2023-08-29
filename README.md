@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们是学生，学生就要有学生的样子。 --佚名
+我身上早已烙下沉默燃烧后遗留下来的哀愁。 --佚名
 ```
