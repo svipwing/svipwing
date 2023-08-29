@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我身上早已烙下沉默燃烧后遗留下来的哀愁。 --佚名
+老夫聊发少年狂，左牵黄，右擎苍。 --苏轼
 ```
