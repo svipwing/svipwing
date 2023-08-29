@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+纵使一次也好，我也想在这个星球上尽情奔跑啊！ --诗音
 ```
