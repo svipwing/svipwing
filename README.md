@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-历史的发展是不以人的意志为转移的。 --毛泽东
+一个细胞里，却分裂出了两种截然不同的命运。 --秦明
 ```
