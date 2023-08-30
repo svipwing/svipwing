@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-于此——聆听吧！汝之晚钟已然敲响！ --佚名
+快乐，至少比富裕要好。 --佚名
 ```
