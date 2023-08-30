@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-确定反应，调整守恒。 --某位化学老师的课
+数学和物理，就是把看不见的星星写在了纸上。 --佚名
 ```
