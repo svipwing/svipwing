@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为痛苦太有价值，因为回忆太珍贵，所以我们更要继续往前走。 --佚名
+确定反应，调整守恒。 --某位化学老师的课
 ```
