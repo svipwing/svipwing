@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是万灵之长，智慧的差异是很小的，经历本身也是文化。 --佚名
+因为痛苦太有价值，因为回忆太珍贵，所以我们更要继续往前走。 --佚名
 ```
