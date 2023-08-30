@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个细胞里，却分裂出了两种截然不同的命运。 --秦明
+所谓宿命，其实都是最好的安排。 --佚名
 ```
