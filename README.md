@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-——什么是孤独？——心里明明空荡荡的，却什么也装不下。 --此账号已注销
+历史的发展是不以人的意志为转移的。 --毛泽东
 ```
