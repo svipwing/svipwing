@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-漫天星光沿途散播，长路尽处有灯火。 --佚名
+每个生灵的意志都值得被尊重，就像海中的游鱼，也有自己的方向。 --珊瑚宫心海
 ```
