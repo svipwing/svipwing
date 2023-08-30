@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个生灵的意志都值得被尊重，就像海中的游鱼，也有自己的方向。 --珊瑚宫心海
+于此——聆听吧！汝之晚钟已然敲响！ --佚名
 ```
