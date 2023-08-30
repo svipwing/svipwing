@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所谓宿命，其实都是最好的安排。 --佚名
+漫天星光沿途散播，长路尽处有灯火。 --佚名
 ```
