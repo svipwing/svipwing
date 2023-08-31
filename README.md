@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-从你站在桥上看我的 那一刻起你就是我的世界。 --佚名
+愿我有生之年，得见您君临天下。 --佚名
 ```
