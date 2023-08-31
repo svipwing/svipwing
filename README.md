@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-男儿何不带吴钩，收取关山五十州。 --李贺
+你，对，你，就是你，你是你。 --不到啊
 ```
