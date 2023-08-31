@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿我有生之年，得见您君临天下。 --佚名
+流浪去吧，总会在世界的一角找到愿意懂你的人。 --佚名
 ```
