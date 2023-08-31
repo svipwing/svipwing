@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成一事者，是失之不渝的愚者；毁一事者，是停滞不前的贤者。 --佚名
+——什么是孤独？——心里明明空荡荡的，却什么也装不下。 --此账号已注销
 ```
