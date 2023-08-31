@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-流浪去吧，总会在世界的一角找到愿意懂你的人。 --佚名
+有些人光是遇到就已经赚到了。 --赵紫骅
 ```
