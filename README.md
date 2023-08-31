@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬是距离理解最遥远的感情。 --佚名
+成一事者，是失之不渝的愚者；毁一事者，是停滞不前的贤者。 --佚名
 ```
