@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-——什么是孤独？——心里明明空荡荡的，却什么也装不下。 --此账号已注销
+你所厌烦的普通，也许是他生命中最珍贵的平凡。 --Human
 ```
