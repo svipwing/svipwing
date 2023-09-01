@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生路上，岔路口。如何走？自己的路。 --GoodChing
+记忆是痛苦的根源。 --周星驰
 ```
