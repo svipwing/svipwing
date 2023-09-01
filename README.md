@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆是痛苦的根源。 --周星驰
+扬帆起航，于舟渡之。 --朴素
 ```
