@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我拒绝，再一次和你分开。 --夏彦深见
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 ```
