@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔岸无旧情，姑苏有钟声。 --林夕
+我拒绝，再一次和你分开。 --夏彦深见
 ```
