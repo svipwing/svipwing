@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相信奇迹的人本身就和奇迹一样了不起啊 --佚名
+如果忘记你那么容易，那我爱你干嘛！ --佚名
 ```
