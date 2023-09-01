@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-彼方为谁，无我有问 ；九月露湿，待君之前 --佚名
+隔岸无旧情，姑苏有钟声。 --林夕
 ```
