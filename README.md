@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-灵气也是气，怨气也是气，怨气为何不能为人所用啊？ --佚名
+宇宙有限，思想无限。 --纳兰音韵
 ```
