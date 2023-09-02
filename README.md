@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-近乡情更怯，不敢问来人。 --宋之问
+灵气也是气，怨气也是气，怨气为何不能为人所用啊？ --佚名
 ```
