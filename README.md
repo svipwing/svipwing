@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一定没有问题的！ --佚名
+一切真实与虚假，一切辉煌与破灭，只存后人之言，只存岁月之中。 --耳根
 ```
