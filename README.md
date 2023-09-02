@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宇宙有限，思想无限。 --纳兰音韵
+真正没有资格谈明天的人，是那个不懂得珍惜今天的人 --佚名
 ```
