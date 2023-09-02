@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果温柔是罪，那就只能用拳头来洗清我们犯下的罪孽。 --曹玄亮
+如果忘记你那么容易，那我爱你干嘛！ --佚名
 ```
