@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不幸的是我们等了那么多年，幸运的我们那么多年过去还一直在一起 --佚名
+我有故人抱剑去，斩尽春风未曾归。 --鸾歌
 ```
