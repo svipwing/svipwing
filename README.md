@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
+后代人的权利远比当代人的欲望更重要。 --佚名
 ```
