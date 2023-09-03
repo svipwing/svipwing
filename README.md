@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-多少事，从来急，天地转，光阴迫，一万年太久，只争朝夕。 --毛泽东
+有一个捉迷藏社团，他们团长现在还没找到。 --佚名
 ```
