@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们无法回到过去，前进的方向，只有未来。 --佚名
+我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
 ```
