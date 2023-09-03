@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正没有资格谈明天的人，是那个不懂得珍惜今天的人 --佚名
+巧合是上帝默默操控世界的方式。 --爱因斯坦
 ```
