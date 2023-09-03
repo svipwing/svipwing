@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-花无人戴，酒无人劝，醉也无人管。 --黄公绍
+我喜欢你们！超喜欢的！大家和我交往吧！绝对会让你们幸福的！ --佚名
 ```
