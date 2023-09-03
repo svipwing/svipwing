@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-美人自古如名将，不许人间见白头。 --佚名
+花无人戴，酒无人劝，醉也无人管。 --黄公绍
 ```
