@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喜欢你们！超喜欢的！大家和我交往吧！绝对会让你们幸福的！ --佚名
+多少事，从来急，天地转，光阴迫，一万年太久，只争朝夕。 --毛泽东
 ```
