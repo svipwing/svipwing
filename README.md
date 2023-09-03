@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-巧合是上帝默默操控世界的方式。 --爱因斯坦
+不幸的是我们等了那么多年，幸运的我们那么多年过去还一直在一起 --佚名
 ```
