@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-幸运的人一生都在被童年治愈，不幸的人一生都在治愈童年。 --佚名
+你现在的气质里，藏着你走过的路，读过的书和爱过的人。 --迈克尔·柯蒂茲
 ```
