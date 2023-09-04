@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所以我松开拳头用手握紧笔，作为自己作为人类也作为你。 --张颜齐
+不快乐是一片需要英雄的大陆。 --歌德
 ```
