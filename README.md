@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-用柔软的面点，对抗这个坚硬的世界吧。 --佚名
+幸运的人一生都在被童年治愈，不幸的人一生都在治愈童年。 --佚名
 ```
