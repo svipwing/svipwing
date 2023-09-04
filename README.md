@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在各种孤独之间，人最怕精神上的孤独。 --巴尔扎克
+慢也好，步伐小也罢，是往前走就好。 --佚名
 ```
