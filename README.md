@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-前天是小兔子,昨天是小鹿,今天是你 --佚名
+所以我松开拳头用手握紧笔，作为自己作为人类也作为你。 --张颜齐
 ```
