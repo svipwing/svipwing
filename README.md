@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有一个捉迷藏社团，他们团长现在还没找到。 --佚名
+前天是小兔子,昨天是小鹿,今天是你 --佚名
 ```
