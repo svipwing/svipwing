@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你现在的气质里，藏着你走过的路，读过的书和爱过的人。 --迈克尔·柯蒂茲
+在各种孤独之间，人最怕精神上的孤独。 --巴尔扎克
 ```
