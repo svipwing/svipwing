@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对不爱我们的人，一旦付出，就罪孽深重 --佚名
+对于德国的奴隶，没有什么比死亡更可怕，感谢这场核战！ --The New Order:Last Days of Europe
 ```
