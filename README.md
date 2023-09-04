@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生死去留，棚头傀儡。一线断时，落落磊磊。 --佚名
+用柔软的面点，对抗这个坚硬的世界吧。 --佚名
 ```
