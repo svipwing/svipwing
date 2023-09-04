@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不快乐是一片需要英雄的大陆。 --歌德
+对不爱我们的人，一旦付出，就罪孽深重 --佚名
 ```
