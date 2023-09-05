@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恰沐春风共同游，终只叹，木已舟。 --佚名
+背上背包，带上行囊，去你的世界旅行。 --佚名
 ```
