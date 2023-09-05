@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-众口铄金，积毁销骨。 --佚名
+永远不要熄灭心中的火，哪怕别人只看见烟。 --佚名
 ```
