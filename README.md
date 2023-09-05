@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-いつだって 信じて 可能性 は無限大 --佚名
+恰沐春风共同游，终只叹，木已舟。 --佚名
 ```
