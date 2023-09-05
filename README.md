@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢也好，步伐小也罢，是往前走就好。 --佚名
+山河远阔，人间烟火，无一是你，无一不是你。 --佚名
 ```
