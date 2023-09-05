@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿薪火相传，美德不灭。 --米哈游
+我们是学生，学生就要有学生的样子。 --佚名
 ```
