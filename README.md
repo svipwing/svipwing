@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们是学生，学生就要有学生的样子。 --佚名
+いつだって 信じて 可能性 は無限大 --佚名
 ```
