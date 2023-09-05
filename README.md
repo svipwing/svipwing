@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-背上背包，带上行囊，去你的世界旅行。 --佚名
+韬光养晦，静待时机 --佚名
 ```
