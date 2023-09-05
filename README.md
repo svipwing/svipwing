@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山河远阔，人间烟火，无一是你，无一不是你。 --佚名
+你就是盛开着的，漫山遍野的温柔。 --佚名
 ```
