@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-曾盛开过一朵，曾不会败落，曾在他眼中流淌过浩瀚的银河。 --南语
+众口铄金，积毁销骨。 --佚名
 ```
