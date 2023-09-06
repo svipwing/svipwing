@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-把人分成好的与坏的是荒谬的，人要么迷人，要么乏味。 --佚名
+如果你执意追寻着我的幻影，总有一天会被真正的我打败。 --佚名
 ```
