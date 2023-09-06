@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自责要短暂，不过要长久铭记。 --佚名
+那些杀不死我的，终将使我变得更加强大。 --尼采
 ```
