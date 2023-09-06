@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世事变迁，沧海桑田，它在万维网的角落，等着哥伦布和他的船员。 --佚名
+死亡只要在人生的终点尝试一次就够了~ --佚名
 ```
