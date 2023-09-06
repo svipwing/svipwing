@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-死亡只要在人生的终点尝试一次就够了~ --佚名
+把人分成好的与坏的是荒谬的，人要么迷人，要么乏味。 --佚名
 ```
