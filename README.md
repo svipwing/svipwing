@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-男人就应该保持冷静，沸腾的水只会被蒸发掉。 --佚名
+从来不会生气的人，注定终生遭受欺凌和压制，直至被摧毁和消灭。 --M·斯科特·派克
 ```
