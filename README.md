@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-从来不会生气的人，注定终生遭受欺凌和压制，直至被摧毁和消灭。 --M·斯科特·派克
+世事变迁，沧海桑田，它在万维网的角落，等着哥伦布和他的船员。 --佚名
 ```
