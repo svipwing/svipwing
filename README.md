@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-韬光养晦，静待时机 --佚名
+只要你还记得我，我就会一直在你的身边。 --佚名
 ```
