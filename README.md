@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你执意追寻着我的幻影，总有一天会被真正的我打败。 --佚名
+爱,其实很简单，困难的是去接受它。 --佚名
 ```
