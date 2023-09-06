@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要你还记得我，我就会一直在你的身边。 --佚名
+如果你有梦想，就要守护它。 --克里斯·加德纳
 ```
