@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那些杀不死我的，终将使我变得更加强大。 --尼采
+伤害别人的人，就要有被伤害的觉悟！ --佚名
 ```
