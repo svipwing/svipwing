@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱,其实很简单，困难的是去接受它。 --佚名
+自责要短暂，不过要长久铭记。 --佚名
 ```
