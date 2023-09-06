@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你有梦想，就要守护它。 --克里斯·加德纳
+男人就应该保持冷静，沸腾的水只会被蒸发掉。 --佚名
 ```
