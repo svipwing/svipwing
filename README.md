@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一辈子，能坚持做好一件事就很伟大了！ --柯钊
+你，对，你，就是你，你是你。 --不到啊
 ```
