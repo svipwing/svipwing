@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个世纪疯狂，没人性，腐败；你却一直清醒，温柔，一尘不染。 --弗朗索瓦丝·萨冈
+我既开始，我必完成；我既决定，我必贯彻。 --南京大学教务处全体老师
 ```
