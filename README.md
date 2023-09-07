@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当遇到你时，大脑连上CSGO都会掉帧。 --Florence
+多动手，没什么难的！ --请叫我仓鼠阁下
 ```
