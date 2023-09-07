@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-伤害别人的人，就要有被伤害的觉悟！ --佚名
+看惯黑夜的人，不应该习惯黑夜，而是应该期待黑夜中的光明。 --罗翔
 ```
