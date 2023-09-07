@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我觉得这个世上这么多人，可是没有人想听我讲话。 --佚名
+这个世纪疯狂，没人性，腐败；你却一直清醒，温柔，一尘不染。 --弗朗索瓦丝·萨冈
 ```
