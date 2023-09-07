@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管明天会发生什么，请牢记住今天。 --佚名
+我觉得这个世上这么多人，可是没有人想听我讲话。 --佚名
 ```
