@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我既开始，我必完成；我既决定，我必贯彻。 --南京大学教务处全体老师
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 ```
