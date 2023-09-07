@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-看惯黑夜的人，不应该习惯黑夜，而是应该期待黑夜中的光明。 --罗翔
+不管明天会发生什么，请牢记住今天。 --佚名
 ```
