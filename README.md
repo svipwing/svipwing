@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恰沐春风共同游，终只叹，木已舟。 --佚名
+“斩尽杀绝，这是对一个文明最高的重视。” --佚名
 ```
