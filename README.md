@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-喜欢 不过是我愿意在冬天把自己当做你的暖水袋而已 如此便是 --佚名
+知道各位都是不要命的，我们也是冲不要命来的。 --刘慈欣
 ```
