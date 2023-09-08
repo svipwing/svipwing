@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-满天都是星星，好像一场冻结了的大雨。 --佚名
+恰沐春风共同游，终只叹，木已舟。 --佚名
 ```
