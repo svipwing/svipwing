@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么我眼睛一睁开，你就不是我的了。 --寂落白
+帮助孩子，去实现他的梦想，对大人来说，那是无上的喜悦。 --佚名
 ```
