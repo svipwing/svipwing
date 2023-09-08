@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-灭六国者，非秦也，六国也。 --杜牧
+满天都是星星，好像一场冻结了的大雨。 --佚名
 ```
