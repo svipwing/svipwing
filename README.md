@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让留下的人，笑着活下去 --佚名
+灭六国者，非秦也，六国也。 --杜牧
 ```
