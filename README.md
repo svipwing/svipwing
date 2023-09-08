@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-知道各位都是不要命的，我们也是冲不要命来的。 --刘慈欣
+让留下的人，笑着活下去 --佚名
 ```
