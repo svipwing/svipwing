@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-嗯呐......软绵绵的人偶，来治愈你们的哟。 --娜娜奇
+就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
 ```
