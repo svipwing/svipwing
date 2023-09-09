@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一生清贫在世间，怎敢耽误天上仙！ --柒公主
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 ```
