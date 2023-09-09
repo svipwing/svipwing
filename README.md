@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果再也见不到你，祝你早安、午安、晚安。 --佚名
+嗯呐......软绵绵的人偶，来治愈你们的哟。 --娜娜奇
 ```
