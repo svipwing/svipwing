@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一日不见兮，思之如狂。 --司马相如
+一生清贫在世间，怎敢耽误天上仙！ --柒公主
 ```
