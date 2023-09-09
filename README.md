@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+所谓觉悟，乃是在漆黑的荒原中，开辟出一条属于自己的星光大道！ --乔鲁诺 · 乔巴拿
 ```
