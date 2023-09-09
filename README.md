@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一直保持微笑是有诀窍的，那就是，在想哭的时候放声大哭。 --佚名
+一日不见兮，思之如狂。 --司马相如
 ```
