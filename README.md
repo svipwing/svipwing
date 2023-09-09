@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谎言不会伤人，真相才是快刀。 --卡密尔
+人是要整活的——没活了，可不就是死了么？ --佚名
 ```
