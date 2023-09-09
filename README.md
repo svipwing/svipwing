@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我知这世界，本如露水般短暂。然而，然而。 --小林一茶
+我们执着于寻找对方缺少的品质，真是太傻了。 --佚名
 ```
