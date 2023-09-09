@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们执着于寻找对方缺少的品质，真是太傻了。 --佚名
+谎言不会伤人，真相才是快刀。 --卡密尔
 ```
