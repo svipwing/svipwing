@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-“斩尽杀绝，这是对一个文明最高的重视。” --佚名
+一直保持微笑是有诀窍的，那就是，在想哭的时候放声大哭。 --佚名
 ```
