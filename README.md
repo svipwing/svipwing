@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所谓觉悟，乃是在漆黑的荒原中，开辟出一条属于自己的星光大道！ --乔鲁诺 · 乔巴拿
+如果再也见不到你，祝你早安、午安、晚安。 --佚名
 ```
