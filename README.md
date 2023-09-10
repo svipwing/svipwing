@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风乍起，吹皱一池春水。 --冯延巳
+或许我们真的不配拥有一些美好的事物 --佚名
 ```
