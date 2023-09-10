@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
+与君初相识，犹如故人归 --佚名
 ```
