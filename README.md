@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算终有一散也别辜负相遇。 --网络
+闻君有两意，故来相决绝。 --卓文君
 ```
