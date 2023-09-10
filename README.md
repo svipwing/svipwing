@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世间万物总有关联，一个简单的结果往往是由多种原因叠加而成。 --神里凌人
+再多的困难也击不倒一个心中拥有希望之力的男人。 --linkey2011
 ```
