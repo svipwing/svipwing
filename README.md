@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与君初相识，犹如故人归 --佚名
+对于我们的幸福来说，别人的看法在本质上来讲并不十分重要。 --叔本华
 ```
