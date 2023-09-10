@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-闻君有两意，故来相决绝。 --卓文君
+要改变别人的心真是件很难办的事，不过改变自己要容易一点。 --佚名
 ```
