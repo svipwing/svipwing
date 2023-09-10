@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-再多的困难也击不倒一个心中拥有希望之力的男人。 --linkey2011
+转眼少年过去，青年又来，登高望远，只是不再俯视人间。 --雨季
 ```
