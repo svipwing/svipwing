@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-转眼少年过去，青年又来，登高望远，只是不再俯视人间。 --雨季
+是不是现在踏出这一步，下决定的是他。 --佚名
 ```
