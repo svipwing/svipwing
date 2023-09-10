@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
+世间万物总有关联，一个简单的结果往往是由多种原因叠加而成。 --神里凌人
 ```
