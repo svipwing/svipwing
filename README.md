@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-或许我们真的不配拥有一些美好的事物 --佚名
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 ```
