@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相信十年后的八月，我们还会相遇。 --佚名
+你凭什么喜欢我，就凭你眼光好吗？ --佚名
 ```
