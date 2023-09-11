@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-两个人从监狱的窗户往外看，一个看见了土地，一个看见了星星。 --空条徐伦
+相信十年后的八月，我们还会相遇。 --佚名
 ```
