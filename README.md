@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当星星变成星空，梦想也就近在咫尺了。 --一只叫一行的喵
+キラキラ☆ドキドキ --佚名
 ```
