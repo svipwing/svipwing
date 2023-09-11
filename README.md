@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-是不是现在踏出这一步，下决定的是他。 --佚名
+死亡只要在人生的终点尝试一次就够了~ --佚名
 ```
