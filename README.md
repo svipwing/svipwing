@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+人为什么要努力？因为怕有朝一日，普通的我，遇见特别的你！ --佚名
 ```
