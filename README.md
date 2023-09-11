@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你凭什么喜欢我，就凭你眼光好吗？ --佚名
+凡人皆有一死，凡人皆需供奉。 --佚名
 ```
