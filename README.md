@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-死亡只要在人生的终点尝试一次就够了~ --佚名
+旅程总有一天会迎来终点，不必匆忙。 --钟离
 ```
