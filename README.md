@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人为什么要努力？因为怕有朝一日，普通的我，遇见特别的你！ --佚名
+甲之蜜糖，乙之砒霜。 --亦舒
 ```
