@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-キラキラ☆ドキドキ --佚名
+昨夜小寐，忽疑君到，却是琉璃火，未央天。 --佚名
 ```
