@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-得到了再失去，总是比从来就没有得到更伤人。 --佚名
+在月色与雪色之间，你是第三种绝色 --佚名
 ```
