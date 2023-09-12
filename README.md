@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么妈妈就不明白无所事事的忙碌呢。 --熊猫君
+君埋泉下泥销骨，我寄人间雪满头。 --白居易
 ```
