@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在月色与雪色之间，你是第三种绝色 --佚名
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 ```
