@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果温柔是罪，那就只能用拳头来洗清我们犯下的罪孽。 --曹玄亮
+为了理想，我宁愿忍受寂寞，饮尽那份孤独。 --包娜娜
 ```
