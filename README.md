@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-昨夜小寐，忽疑君到，却是琉璃火，未央天。 --佚名
+得到了再失去，总是比从来就没有得到更伤人。 --佚名
 ```
