@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为了理想，我宁愿忍受寂寞，饮尽那份孤独。 --包娜娜
+最短的捷径就是绕远路。 --杰洛·齐贝林
 ```
