@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最短的捷径就是绕远路。 --杰洛·齐贝林
+为什么妈妈就不明白无所事事的忙碌呢。 --熊猫君
 ```
