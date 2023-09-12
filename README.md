@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+如果温柔是罪，那就只能用拳头来洗清我们犯下的罪孽。 --曹玄亮
 ```
