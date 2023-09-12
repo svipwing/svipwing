@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-君埋泉下泥销骨，我寄人间雪满头。 --白居易
+所谓觉悟，乃是在漆黑的荒原中，开辟出一条属于自己的星光大道！ --乔鲁诺 · 乔巴拿
 ```
