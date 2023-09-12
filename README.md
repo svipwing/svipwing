@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我忘记了所有悲剧，看到的都是奇迹。 --奎若
+爱与友情以及勇气改变不了一个人，只有受伤才能让人成长。 --佚名
 ```
