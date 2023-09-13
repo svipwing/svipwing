@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-繁花血景在那一赛季达到巅峰，却也止于巅峰。 --蝴蝶蓝
+我是他的盾牌，我是他的利刃。我深知他，连同他的过去和未来。 --佚名
 ```
