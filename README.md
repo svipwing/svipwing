@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-任尘世繁华，唯有守护你的一切，才是我此生唯一的使命。 --初启源
+不稼不穑，耕怠者无获；不了不当，事辍者无功。 --佚名
 ```
