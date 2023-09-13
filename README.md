@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-黄粱一梦，山水万重，人间总相逢。 --佚名
+南风知我意，吹梦到西洲。 --佚名
 ```
