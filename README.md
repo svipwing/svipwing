@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小荷才露尖尖角，早有蜻蜓立上头。 --杨万里
+因为失去,所以明白。 --漩涡鸣人
 ```
