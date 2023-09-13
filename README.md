@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不稼不穑，耕怠者无获；不了不当，事辍者无功。 --佚名
+黄粱一梦，山水万重，人间总相逢。 --佚名
 ```
