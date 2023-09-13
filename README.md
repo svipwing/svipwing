@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界之大为何我们相遇，难道是缘分，难道是天意。 --曲婉婷
+任尘世繁华，唯有守护你的一切，才是我此生唯一的使命。 --初启源
 ```
