@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我是他的盾牌，我是他的利刃。我深知他，连同他的过去和未来。 --佚名
+小荷才露尖尖角，早有蜻蜓立上头。 --杨万里
 ```
