@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这世界是个好地方，值得为它奋斗。后半句我同意。 --佚名
+我等必将复起，古木已发新枝。 --忍冬之树
 ```
