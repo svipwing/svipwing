@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为失去,所以明白。 --漩涡鸣人
+这世界是个好地方，值得为它奋斗。后半句我同意。 --佚名
 ```
