@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世间所有的相遇，都是久别重逢。 --佚名
+风牛流马·我带你回家 --佚名
 ```
