@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们的科学永远只是找到近似真理。 --佚名
+别人看见的只有你的光鲜亮丽，他们永远不知道你失去了什么。 --意难藏
 ```
