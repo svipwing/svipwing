@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我等必将复起，古木已发新枝。 --忍冬之树
+飘零的孤鸟，也有权利寻求幸福啊。 --佚名
 ```
