@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山有木兮木有枝，心悦君兮君不知。 --佚名
+人生于我，一场豪赌而已。 --刘慈欣
 ```
