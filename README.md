@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-悲兮叹兮终餐亵，人度天度不涅槃。 --seyi
+山有木兮木有枝，心悦君兮君不知。 --佚名
 ```
