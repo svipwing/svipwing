@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-飘零的孤鸟，也有权利寻求幸福啊。 --佚名
+世上无难事，只要肯放弃。 --佚名
 ```
