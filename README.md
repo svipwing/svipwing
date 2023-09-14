@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世上无难事，只要肯放弃。 --佚名
+我们的科学永远只是找到近似真理。 --佚名
 ```
