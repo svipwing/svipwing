@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-大千世界风景瑰丽，却无人有心欣赏。 --沫夏孤水
+从来不需要想起，永远也不会忘记 --佚名
 ```
