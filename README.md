@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们的工作是搬运生命和死亡。 --佚名
+我们登上并非我们所选择的舞台，演出并非我们所选择的剧本。 --爱比克泰德
 ```
