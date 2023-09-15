@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们登上并非我们所选择的舞台，演出并非我们所选择的剧本。 --爱比克泰德
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 ```
