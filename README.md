@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逆流而上吧。 --大乔
+恋ではなく、爱でもなく、もっとずっと 深く重い。 --佚名
 ```
