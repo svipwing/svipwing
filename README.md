@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-直面恐惧，创造未来。 --Project Moon
+逆流而上吧。 --大乔
 ```
