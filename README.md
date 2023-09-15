@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成年人的世界没有容易二字。 --天气预报员
+要是太勉强自己的话，总有一天会受伤的 --玖兰枢
 ```
