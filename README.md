@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生于我，一场豪赌而已。 --刘慈欣
+我们的工作是搬运生命和死亡。 --佚名
 ```
