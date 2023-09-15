@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-アートは最高です！ --佚名
+直面恐惧，创造未来。 --Project Moon
 ```
