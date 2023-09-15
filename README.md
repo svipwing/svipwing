@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-从来不需要想起，永远也不会忘记 --佚名
+永远不要熄灭心中的火，哪怕别人只看见烟。 --佚名
 ```
