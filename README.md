@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恋ではなく、爱でもなく、もっとずっと 深く重い。 --佚名
+大千世界风景瑰丽，却无人有心欣赏。 --沫夏孤水
 ```
