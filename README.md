@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-前进！前进！！不择手段地前进！！！ --刘慈欣
+它是表达对规律的渴望，还是对混沌的屈服？ --刘慈欣
 ```
