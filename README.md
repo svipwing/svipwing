@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要一天活著,难过的事总有一天会让你笑著说出来。 --宫崎骏
+不可以逃避！活下去！活下去也是一种战斗！ --卡嘉丽·尤拉·阿斯哈
 ```
