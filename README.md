@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不可以逃避！活下去！活下去也是一种战斗！ --卡嘉丽·尤拉·阿斯哈
+没有激流就称不上勇进，没有山峰就谈不上攀登。 --佚名
 ```
