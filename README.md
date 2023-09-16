@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-它来自旅途的尽头、世界的边缘；来自你我心中，永不停歇。 --温迪
+实践是检验真理的唯一标准。 --佚名
 ```
