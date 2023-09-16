@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我是奥尔加·伊滋卡，几颗子弹不要紧的！ --佚名
+前进！前进！！不择手段地前进！！！ --刘慈欣
 ```
