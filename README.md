@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-它是表达对规律的渴望，还是对混沌的屈服？ --刘慈欣
+只要一天活著,难过的事总有一天会让你笑著说出来。 --宫崎骏
 ```
