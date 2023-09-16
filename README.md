@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-军人天生就舍弃了战斗的意义！ --格拉汉姆
+你要的未来，就是这个样子吗？ --佚名
 ```
