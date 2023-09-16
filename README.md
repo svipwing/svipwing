@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要是太勉强自己的话，总有一天会受伤的 --玖兰枢
+你，对，你，就是你，你是你。 --不到啊
 ```
