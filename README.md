@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实践是检验真理的唯一标准。 --佚名
+我是奥尔加·伊滋卡，几颗子弹不要紧的！ --佚名
 ```
