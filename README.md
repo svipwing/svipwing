@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+军人天生就舍弃了战斗的意义！ --格拉汉姆
 ```
