@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你要的未来，就是这个样子吗？ --佚名
+它来自旅途的尽头、世界的边缘；来自你我心中，永不停歇。 --温迪
 ```
