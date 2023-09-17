@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人心是件奇妙的东西，大部分的时候，总是愉快而又平静的生活着。 --佚名
+你，对，你，就是你，你是你。 --不到啊
 ```
