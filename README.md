@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-富江有天使的脸孔，但其实她是个恶魔，不，恶魔也比她要好一点。 --伊藤润二
+人心是件奇妙的东西，大部分的时候，总是愉快而又平静的生活着。 --佚名
 ```
