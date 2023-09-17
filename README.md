@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-烟花易逝，人情长存。 --宵宫
+你在我规划的航程上，我在你投射的视线里。 --周佳顺
 ```
