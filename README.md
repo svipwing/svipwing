@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿时光能缓，愿故人不散！ --佚名
+脑海中没有印象的人也能发人深省，真是奇妙无比。 --鲜花店少女芭莉
 ```
