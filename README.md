@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+层峦耸翠，上出重霄；飞阁流丹，下临无地。 --佚名
 ```
