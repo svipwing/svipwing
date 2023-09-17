@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-他乡纵有当头月，不及故乡一盏灯。 --闫浔
+愿时光能缓，愿故人不散！ --佚名
 ```
