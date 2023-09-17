@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你在我规划的航程上，我在你投射的视线里。 --周佳顺
+富江有天使的脸孔，但其实她是个恶魔，不，恶魔也比她要好一点。 --伊藤润二
 ```
