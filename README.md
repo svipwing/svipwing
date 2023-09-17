@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我相信十年后的八月，我们还能再相遇。 --佚名
+你在那么美丽的地方，纯属奇迹般的偶然。 --雪村心叶
 ```
