@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你在那么美丽的地方，纯属奇迹般的偶然。 --雪村心叶
+因为你喜欢海，所以我一直浪。 --佚名
 ```
