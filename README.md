@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们一直在一起，所以最后也想在你身旁。 --佚名
+烟花易逝，人情长存。 --宵宫
 ```
