@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿我有生之年，得见您君临天下。 --佚名
+最初的鸟儿是不会飞翔的，飞翔是他们勇敢跃入峡谷的奖励。 --温迪
 ```
