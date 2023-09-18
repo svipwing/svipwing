@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我曾经也许是个好人，但现在，我只是个士兵。 --佚名
+哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
 ```
