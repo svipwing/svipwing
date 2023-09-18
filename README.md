@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-身为冒险者，如果安静的老死在床上，那简直就是耻辱！ --跳舞
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 ```
