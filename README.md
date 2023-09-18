@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个细胞里，却分裂出了两种截然不同的命运。 --秦明
+我曾经也许是个好人，但现在，我只是个士兵。 --佚名
 ```
