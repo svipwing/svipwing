@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孤独的人不会伤害别人，只会不断地伤害自己罢了。 --佚名
+愿我有生之年，得见您君临天下。 --佚名
 ```
