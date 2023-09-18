@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人类侥幸拥有了智慧，就应该善用它。 --王小波
+孤独的人不会伤害别人，只会不断地伤害自己罢了。 --佚名
 ```
