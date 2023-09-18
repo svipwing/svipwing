@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-脑海中没有印象的人也能发人深省，真是奇妙无比。 --鲜花店少女芭莉
+二次元什么的我本来是不感冒的，直到我的膝盖中了一箭。 --佚名
 ```
