@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-二次元什么的我本来是不感冒的，直到我的膝盖中了一箭。 --佚名
+人类侥幸拥有了智慧，就应该善用它。 --王小波
 ```
