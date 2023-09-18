@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-五十年来和五百年内，中国写猴子的前三名都是我、我、我。 --佚名
+身为冒险者，如果安静的老死在床上，那简直就是耻辱！ --跳舞
 ```
