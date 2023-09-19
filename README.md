@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-阶砖不会拒绝磨蚀，窗花不可幽禁落霞。 --黄伟文
+人类，在决战之时难道会选择自己不擅长的武器来战斗吗？ --佚名
 ```
