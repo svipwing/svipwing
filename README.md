@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-资本来到世间，从头到脚每个毛孔都滴着血和肮脏的东西。 --卡尔·海因里希·马克思
+有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
 ```
