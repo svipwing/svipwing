@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的手机明明没有坏掉，可是她为什么没给我打电话呢？ --佚名
+资本来到世间，从头到脚每个毛孔都滴着血和肮脏的东西。 --卡尔·海因里希·马克思
 ```
