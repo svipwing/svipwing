@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔岸无旧情，姑苏有钟声。 --林夕
+胆小鬼连幸福都害怕，碰到棉花都会受伤 --佚名
 ```
