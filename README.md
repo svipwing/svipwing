@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-形而上者谓之道，形而下者谓之器。 --佚名
+阶砖不会拒绝磨蚀，窗花不可幽禁落霞。 --黄伟文
 ```
