@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-充其量只是好奇罢了。 --佚名
+学习和什么使我们快乐 --佚名
 ```
