@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界上没有偶然，有的只是必然。 --佚名
+隔岸无旧情，姑苏有钟声。 --林夕
 ```
