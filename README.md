@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-即使人生是一场悲剧，也应该笑着把人生演完。 --尼采
+世界上没有偶然，有的只是必然。 --佚名
 ```
