@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-胆小鬼连幸福都害怕，碰到棉花都会受伤 --佚名
+一个人吃饭，太寂寞了。 --佚名
 ```
