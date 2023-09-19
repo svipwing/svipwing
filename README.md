@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个人吃饭，太寂寞了。 --佚名
+形而上者谓之道，形而下者谓之器。 --佚名
 ```
