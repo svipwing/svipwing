@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就因为没有好事发生，所以至少要保持微笑。 --表田里道
+江湖有酒江湖见。 --剑来书迷
 ```
