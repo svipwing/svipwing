@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-珍惜眼前的幸福吧，而不是去奢求无法得到的东西。 --深美
+红茶的温度和女人心在任何时代都是难以琢磨呢。 --佚名
 ```
