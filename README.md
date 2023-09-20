@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-借君三十年，繁花万里好江山。 --霍尊
+要么忙着生存要么赶着去死，人总要做点什么 --佚名
 ```
