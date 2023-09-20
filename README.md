@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-红茶的温度和女人心在任何时代都是难以琢磨呢。 --佚名
+能诚实地承认穷，诚恳地表达对于钱的兴趣，就是穷者的尊严。 --佚名
 ```
