@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不从善恶意，只遵本心行。 --朴素
+就因为没有好事发生，所以至少要保持微笑。 --表田里道
 ```
