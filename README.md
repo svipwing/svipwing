@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成年人的世界没有容易二字。 --天气预报员
+借君三十年，繁花万里好江山。 --霍尊
 ```
