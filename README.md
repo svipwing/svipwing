@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有真正的快乐，除非找到……你爱的那个人。 --绎泽
+珍惜眼前的幸福吧，而不是去奢求无法得到的东西。 --深美
 ```
