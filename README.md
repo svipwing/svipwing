@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风月折断杨柳枝，琴瑟朝露挥掷成诗。 --龙小套
+不从善恶意，只遵本心行。 --朴素
 ```
