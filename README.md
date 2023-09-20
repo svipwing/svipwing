@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-江湖有酒江湖见。 --剑来书迷
+没有真正的快乐，除非找到……你爱的那个人。 --绎泽
 ```
