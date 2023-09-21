@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-神即道，道即法，道法自然，如来。 --豆豆
+有话直说就是我的忍道！ --漩涡鸣人
 ```
