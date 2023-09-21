@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-亲爱的，你不是救世主。 --江池屿
+所以我松开拳头用手握紧笔，作为自己作为人类也作为你。 --张颜齐
 ```
