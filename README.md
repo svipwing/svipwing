@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要是追不上光，那就变成光吧。 --小白想做你的唯一
+绚烂如繁樱，瞬息绽放后凋落。 花以香为证，曾美至惊心动魄。 --佚名
 ```
