@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孤独才是寂寞的唯一出口。 --马尔克斯
+如果可以，请让我们慢慢了解，慢慢喜欢。 --佚名
 ```
