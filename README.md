@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-绚烂如繁樱，瞬息绽放后凋落。 花以香为证，曾美至惊心动魄。 --佚名
+很多事只是最初看起来有意义，但经过多次重复就慢慢失去了意义。 --叔本华
 ```
