@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果可以，请让我们慢慢了解，慢慢喜欢。 --佚名
+敏而好学，不耻下问。 --佚名
 ```
