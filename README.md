@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所以我松开拳头用手握紧笔，作为自己作为人类也作为你。 --张颜齐
+要是追不上光，那就变成光吧。 --小白想做你的唯一
 ```
