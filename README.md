@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能诚实地承认穷，诚恳地表达对于钱的兴趣，就是穷者的尊严。 --佚名
+亲爱的，你不是救世主。 --江池屿
 ```
