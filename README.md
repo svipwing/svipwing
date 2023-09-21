@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今昔横云有雨，挂满山涧，故人来。 --耳根
+神即道，道即法，道法自然，如来。 --豆豆
 ```
