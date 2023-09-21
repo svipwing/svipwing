@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
+今昔横云有雨，挂满山涧，故人来。 --耳根
 ```
