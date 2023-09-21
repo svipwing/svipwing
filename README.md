@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有话直说就是我的忍道！ --漩涡鸣人
+孤独才是寂寞的唯一出口。 --马尔克斯
 ```
