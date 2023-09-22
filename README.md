@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-敏而好学，不耻下问。 --佚名
+绝望的人没有故乡。 --阿尔贝·加缪
 ```
