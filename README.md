@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我没有梦想，但我可以守护别人的梦想！ --乾巧
+他强任他强，清风拂山岗。他横任他横，明月照大江。 --金庸
 ```
