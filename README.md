@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-他强任他强，清风拂山岗。他横任他横，明月照大江。 --金庸
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 ```
