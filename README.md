@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-绝望的人没有故乡。 --阿尔贝·加缪
+我没有梦想，但我可以守护别人的梦想！ --乾巧
 ```
