@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+世事变幻无常，而近乎永恒不变者，唯你我头上的同一片星空。 --佚名
 ```
