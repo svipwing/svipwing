@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世事变幻无常，而近乎永恒不变者，唯你我头上的同一片星空。 --佚名
+于是荆轲遂就车而去，终已不顾。 --佚名
 ```
