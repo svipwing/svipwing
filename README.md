@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-于是荆轲遂就车而去，终已不顾。 --佚名
+没有调查就没有发言权。 --毛泽东
 ```
