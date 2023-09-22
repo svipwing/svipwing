@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
+心不动，则不痛；爱不离，则不弃。 --佚名
 ```
