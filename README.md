@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-枕上诗书闲处好，门前风景雨来佳。 --李清照
+日日思君不见君，共饮长江水。 --李之仪
 ```
