@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-心不动，则不痛；爱不离，则不弃。 --佚名
+枕上诗书闲处好，门前风景雨来佳。 --李清照
 ```
