@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能力越大,责任越大 --佚名
+若言琴上有琴声，放在匣中何不鸣？ --苏轼
 ```
