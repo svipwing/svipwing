@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正的危机不是机器人像人一样思考，而是人像机器一样思考。 --佚名
+你想走，就请立马抽刀，爱一笔勾销。 --方文山
 ```
