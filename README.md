@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么我的眼里常含泪水？因为我对这土地爱的深沉。 --佚名
+荷尔蒙决定一见钟情，多巴胺决定天长地久。 --不自爱里迷失
 ```
