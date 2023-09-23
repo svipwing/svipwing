@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-荷尔蒙决定一见钟情，多巴胺决定天长地久。 --不自爱里迷失
+真正的危机不是机器人像人一样思考，而是人像机器一样思考。 --佚名
 ```
