@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-越是困难，越要抬起头，地上可找不到任何希望！ --佚名
+因为你喜欢海，所以我一直浪。 --佚名
 ```
