@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你想走，就请立马抽刀，爱一笔勾销。 --方文山
+越是困难，越要抬起头，地上可找不到任何希望！ --佚名
 ```
