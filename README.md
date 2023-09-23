@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+神即道，道即法，道法自然，如来。 --豆豆
 ```
