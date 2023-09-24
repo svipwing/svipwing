@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-以风为名，屿之齐鸣。 --风屿
+最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。 --安柏
 ```
