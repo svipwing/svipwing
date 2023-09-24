@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-值得做的事情，就是值得做对的事情。 --青钢影
+为你，千千万万遍。 --佚名
 ```
