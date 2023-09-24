@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。 --安柏
+那天，我听到了种子破土的声音，又细微又坚定。 --夏达
 ```
