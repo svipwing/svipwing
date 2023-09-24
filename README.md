@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只对你，无论谈恋爱还是谈个恋爱，都得是跟你。 --巫哲
+值得做的事情，就是值得做对的事情。 --青钢影
 ```
