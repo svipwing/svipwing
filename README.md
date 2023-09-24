@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
+只对你，无论谈恋爱还是谈个恋爱，都得是跟你。 --巫哲
 ```
