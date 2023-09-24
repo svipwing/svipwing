@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为你，千千万万遍。 --佚名
+身为冒险者，如果安静的老死在床上，那简直就是耻辱！ --跳舞
 ```
