@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-身为冒险者，如果安静的老死在床上，那简直就是耻辱！ --跳舞
+在不同的遭遇里我发现你的瞬间，有种不可言说的温柔直觉。 --郭顶
 ```
