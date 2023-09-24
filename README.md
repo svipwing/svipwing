@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 ```
