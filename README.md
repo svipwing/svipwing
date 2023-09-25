@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若你困与无风之地，我将奏响高天之歌。 --温迪
+绝望自有绝望的力量，正如希望自有希望的无能. --佚名
 ```
