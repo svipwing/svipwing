@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-长恨此身非我有，何时忘却营营。 --苏轼
+为什么我眼睛一睁开，你就不是我的了。 --寂落白
 ```
