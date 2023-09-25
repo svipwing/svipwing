@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我发过誓，再也不装作没察觉，再也不逃避。 --佚名
+长恨此身非我有，何时忘却营营。 --苏轼
 ```
