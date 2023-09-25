@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你驻足于春色中，于那独一无二的春色之中。 --佚名
+读书人皆是负心人，最负痴心人。 --佚名
 ```
