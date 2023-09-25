@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-未经审视的人生是不值得过的。 --苏格拉底
+我发过誓，再也不装作没察觉，再也不逃避。 --佚名
 ```
