@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那天，我听到了种子破土的声音，又细微又坚定。 --夏达
+我忘记了所有悲剧，看到的都是奇迹。 --奎若
 ```
