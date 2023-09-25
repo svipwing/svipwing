@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我忘记了所有悲剧，看到的都是奇迹。 --奎若
+你驻足于春色中，于那独一无二的春色之中。 --佚名
 ```
