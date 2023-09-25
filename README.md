@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-江南无所有，聊赠一枝春。 --陆凯
+未经审视的人生是不值得过的。 --苏格拉底
 ```
