@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-绝望自有绝望的力量，正如希望自有希望的无能. --佚名
+不管你说再多的慌，只有自己的内心，是无法欺骗的啊。 --佚名
 ```
