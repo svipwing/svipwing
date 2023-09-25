@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-读书人皆是负心人，最负痴心人。 --佚名
+人总是贪婪的，就像最开始，我也只是想知道你的名字。 --新海诚
 ```
