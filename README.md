@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么我眼睛一睁开，你就不是我的了。 --寂落白
+若你困与无风之地，我将奏响高天之歌。 --温迪
 ```
