@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
+没有了希求，不再有祈望。 --二兄
 ```
