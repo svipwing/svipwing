@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有了希求，不再有祈望。 --二兄
+人类刻着对痛苦的敏感，却没有对痛苦的反感。 --xomk
 ```
