@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的恋爱还没有开始就结束了。 --姬宫伊织
+祈祷奇迹，其实不如无尽的练习。 --佚名
 ```
