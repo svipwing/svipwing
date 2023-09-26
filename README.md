@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人类刻着对痛苦的敏感，却没有对痛苦的反感。 --xomk
+不要轻易的口出狂言，那样只会透露出你的软弱。 --佚名
 ```
