@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-祈祷奇迹，其实不如无尽的练习。 --佚名
+千里之行，始于足下。 --佚名
 ```
