@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-温柔正确的人总是难以生存，因为这世界既不温柔，也不正确。 --佚名
+饭可以一日不吃，水可以一日不喝，但题不可以一日不贺。 --佚名
 ```
