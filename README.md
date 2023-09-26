@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-饭可以一日不吃，水可以一日不喝，但题不可以一日不贺。 --佚名
+吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
 ```
