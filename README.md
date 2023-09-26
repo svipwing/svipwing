@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要轻易的口出狂言，那样只会透露出你的软弱。 --佚名
+隐约雷鸣，阴霾天空，即使天无雨，我亦留此地。 --新海诚
 ```
