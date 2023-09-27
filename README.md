@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不知横跨几度银河，才终于在尽头与你相遇 --佚名
+玲珑骰子安红豆，入骨相思知不知。 --温庭筠
 ```
