@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谁也不再拥有温暖的温度，来焐热那一片彻骨的寒 --天下归元
+关门，放狗！ --佚名
 ```
