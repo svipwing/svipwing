@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我本可以忍受黑暗，如果我不曾见过光明。 --艾米莉·狄金森
+I'm nothing without you. --Clifford Devo
 ```
