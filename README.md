@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为遇一人而入红尘，人去我亦去，此生不留尘 --佚名
+欲买桂花同载酒，终不似、少年游。 --刘过
 ```
