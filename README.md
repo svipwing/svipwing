@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生在世不称意，不如自挂东南枝 --佚名
+最短的捷径就是绕远路。 --杰洛·齐贝林
 ```
