@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-关门，放狗！ --佚名
+人生在世不称意，不如自挂东南枝 --佚名
 ```
