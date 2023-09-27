@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隐约雷鸣，阴霾天空，即使天无雨，我亦留此地。 --新海诚
+不知横跨几度银河，才终于在尽头与你相遇 --佚名
 ```
