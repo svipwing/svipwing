@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这些悄悄抽出小绿芽的幼苗，终将有一天会长成参天大树吧。 --佚名
+为遇一人而入红尘，人去我亦去，此生不留尘 --佚名
 ```
