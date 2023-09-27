@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-I'm nothing without you. --Clifford Devo
+以智者之名，为愚者代辩。 --佚名
 ```
