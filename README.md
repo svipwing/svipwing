@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最短的捷径就是绕远路。 --杰洛·齐贝林
+希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
 ```
