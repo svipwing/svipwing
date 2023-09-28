@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-以智者之名，为愚者代辩。 --佚名
+黑，真他妈的黑啊。 --佚名
 ```
