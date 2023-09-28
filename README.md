@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-青山隐隐水迢迢，秋尽江南草未凋。 --杜牧
+一个悲伤的故事，第二支冰激凌半价 --佚名
 ```
