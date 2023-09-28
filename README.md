@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活，就是生出来活下去，其它都是浮云，活的潇洒一点。 --吕小布
+武侯祠堂常邻近，一体君臣祭祀同。 --杜甫
 ```
