@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算是堕落浪子，也能力挽狂澜。 --方绪
+不管你说再多的慌，只有自己的内心，是无法欺骗的啊。 --佚名
 ```
