@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-大本钟下送快递——上面摆，下面寄。 --记得
+就算是堕落浪子，也能力挽狂澜。 --方绪
 ```
