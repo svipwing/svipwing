@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-武侯祠堂常邻近，一体君臣祭祀同。 --杜甫
+唯有爱与梦想不可辜负 --佚名
 ```
