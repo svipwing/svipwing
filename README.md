@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-黑，真他妈的黑啊。 --佚名
+生活，就是生出来活下去，其它都是浮云，活的潇洒一点。 --吕小布
 ```
