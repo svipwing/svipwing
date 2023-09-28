@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-神即道，道即法，道法自然，如来。 --豆豆
+最短的捷径就是绕远路。 --杰洛·齐贝林
 ```
