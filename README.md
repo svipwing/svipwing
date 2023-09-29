@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命如同寓言，其价值不在于长短，而在于内容。 --塞涅卡
+你是故意找茬是不是？ --华强
 ```
