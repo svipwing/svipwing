@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-后来，错过也成了人间常态。 --焦糖and瓜子
+和绝望，和睦相处 --佚名
 ```
