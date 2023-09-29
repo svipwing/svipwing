@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-和绝望，和睦相处 --佚名
+生命如同寓言，其价值不在于长短，而在于内容。 --塞涅卡
 ```
