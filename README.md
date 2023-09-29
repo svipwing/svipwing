@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有一个捉迷藏社团，他们团长现在还没找到。 --佚名
+你的胆小，就让它，见鬼去吧。 --佚名
 ```
