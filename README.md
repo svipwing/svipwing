@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-用你的笑容去改变这个世界，别让这个世界改变了你的笑容。 --佚名
+为什么我的眼里常含泪水？因为我对这土地爱的深沉。 --佚名
 ```
