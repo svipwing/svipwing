@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-草木有本心，何求美人折！ --张九龄
+后来，错过也成了人间常态。 --焦糖and瓜子
 ```
