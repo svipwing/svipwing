@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个悲伤的故事，第二支冰激凌半价 --佚名
+明天会吹拂着明天的风。 --佚名
 ```
