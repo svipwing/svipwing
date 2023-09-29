@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-近水楼台先得月，向阳花木易为春。 --苏麟
+草木有本心，何求美人折！ --张九龄
 ```
