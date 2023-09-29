@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么我的眼里常含泪水？因为我对这土地爱的深沉。 --佚名
+直到她永久沉睡的那一天，世界啊，请你一定不要终结。 --榛名亮
 ```
