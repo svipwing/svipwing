@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-直到她永久沉睡的那一天，世界啊，请你一定不要终结。 --榛名亮
+近水楼台先得月，向阳花木易为春。 --苏麟
 ```
