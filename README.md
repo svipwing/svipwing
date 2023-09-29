@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-明天会吹拂着明天的风。 --佚名
+用你的笑容去改变这个世界，别让这个世界改变了你的笑容。 --佚名
 ```
