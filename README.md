@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当然是教你们养鸡啦，将优等种的德意志鸡推广到全世界！ --The New Order:Last Days of Europe
+要是追不上光，那就变成光吧。 --小白想做你的唯一
 ```
