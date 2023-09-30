@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我之所以想变强，是为了活得轻松写意。 --佚名
+当你真正想做成一件事情的时候，就连天地万物都会帮你。 --褚嬴
 ```
