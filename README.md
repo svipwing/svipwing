@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你的胆小，就让它，见鬼去吧。 --佚名
+我们把世界看错，反说它欺骗了我们。 --泰戈尔
 ```
