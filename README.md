@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-空不是无，空是一种存在。 --佚名
+愿薪火相传，美德不灭。 --米哈游
 ```
