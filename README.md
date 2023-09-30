@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们把世界看错，反说它欺骗了我们。 --泰戈尔
+空不是无，空是一种存在。 --佚名
 ```
