@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-此情无计可消除，才下眉头，却上心头。 --李清照
+我也要AK IOI！ --佚名
 ```
