@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿薪火相传，美德不灭。 --米哈游
+当然是教你们养鸡啦，将优等种的德意志鸡推广到全世界！ --The New Order:Last Days of Europe
 ```
