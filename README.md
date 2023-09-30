@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-回眸一笑百媚生，六宫粉黛无颜色。 --白居易
+此情无计可消除，才下眉头，却上心头。 --李清照
 ```
