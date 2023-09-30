@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
+回眸一笑百媚生，六宫粉黛无颜色。 --白居易
 ```
