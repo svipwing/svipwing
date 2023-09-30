@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当你真正想做成一件事情的时候，就连天地万物都会帮你。 --褚嬴
+猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
 ```
