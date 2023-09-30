@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你是我的，那是曾经。我是你的，直到现在。 --佚名
+我之所以想变强，是为了活得轻松写意。 --佚名
 ```
