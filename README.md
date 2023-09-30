@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要是追不上光，那就变成光吧。 --小白想做你的唯一
+你是我的，那是曾经。我是你的，直到现在。 --佚名
 ```
