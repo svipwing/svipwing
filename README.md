@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要成为光，因为有怕黑的人。 --佚名
+任尘世繁华，唯有守护你的一切，才是我此生唯一的使命。 --初启源
 ```
