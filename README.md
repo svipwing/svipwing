@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-I will always be here for you. --佚名
+出入相友，守望相助。 --佚名
 ```
