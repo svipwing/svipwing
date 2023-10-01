@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-她轻轻唱起来宛如天籁，让我的梦似翅膀心似海。 --关山
+落幕时留下的轮廓和灰烬是留给这世界的一个吻和一份叹息。 --佚名
 ```
