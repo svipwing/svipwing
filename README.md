@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
+开始的倾心交谈，沦为平淡。 --阿冗
 ```
