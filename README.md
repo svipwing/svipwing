@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-众口铄金，积毁销骨。 --佚名
+要成为光，因为有怕黑的人。 --佚名
 ```
