@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界之大为何我们相遇，难道是缘分，难道是天意。 --曲婉婷
+渐行渐远渐无书，水阔鱼沉何处问。 --欧阳修
 ```
