@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-任尘世繁华，唯有守护你的一切，才是我此生唯一的使命。 --初启源
+搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
 ```
