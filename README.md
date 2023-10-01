@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-渐行渐远渐无书，水阔鱼沉何处问。 --欧阳修
+如果忘记你那么容易，那我爱你干嘛！ --佚名
 ```
