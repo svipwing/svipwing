@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-落幕时留下的轮廓和灰烬是留给这世界的一个吻和一份叹息。 --佚名
+I will always be here for you. --佚名
 ```
