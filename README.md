@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我也要AK IOI！ --佚名
+她轻轻唱起来宛如天籁，让我的梦似翅膀心似海。 --关山
 ```
