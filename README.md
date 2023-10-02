@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-别人的幸福，你的地狱 --佚名
+实变函数学十遍，泛函学完心泛寒。 --佚名
 ```
