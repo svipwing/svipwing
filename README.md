@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算是堕落浪子，也能力挽狂澜。 --方绪
+人本身可以是聚光灯，我自己可以就是发光体。 --刘耀文
 ```
