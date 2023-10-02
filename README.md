@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-勇气就是明知会受伤，却还要这样做，愚蠢也是如此。 --凡ICE
+就算是堕落浪子，也能力挽狂澜。 --方绪
 ```
