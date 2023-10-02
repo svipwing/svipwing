@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你曾打马过银河，倒影一百光年长。 --李倦容
+勇气就是明知会受伤，却还要这样做，愚蠢也是如此。 --凡ICE
 ```
