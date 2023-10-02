@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
+你曾打马过银河，倒影一百光年长。 --李倦容
 ```
