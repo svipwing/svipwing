@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-あなたは敵だけど悪くない。 --水门
+我们等待着戈多，在等待的过程中发现戈多就是等待本身。 --佚名
 ```
