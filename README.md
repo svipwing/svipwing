@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-开始的倾心交谈，沦为平淡。 --阿冗
+十几岁的年纪里，谁都不是谁的一生。 --佚名
 ```
