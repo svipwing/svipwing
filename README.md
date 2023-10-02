@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我有故人抱剑去，斩尽春风未曾归。 --鸾歌
+あなたは敵だけど悪くない。 --水门
 ```
