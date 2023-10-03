@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最初的鸟儿是不会飞翔的，飞翔是他们勇敢跃入峡谷的奖励。 --温迪
+能够用自己喜欢的工作维持生活是件很幸福的事情 --佚名
 ```
