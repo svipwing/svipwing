@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-美丽的不是这个世界，而是接受了这个世界的你的眼睛。 --玖兰枢
+点亮星火，眺望未来。 --点亮星火
 ```
