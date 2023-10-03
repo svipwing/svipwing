@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-アートは最高です！ --佚名
+回首某个瞬间，下个瞬间即告消逝。 --佚名
 ```
