@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宇宙有限，思想无限。 --纳兰音韵
+你为了你的正义，我为了我的正义。 --佚名
 ```
