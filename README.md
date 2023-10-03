@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你为了你的正义，我为了我的正义。 --佚名
+最初的鸟儿是不会飞翔的，飞翔是他们勇敢跃入峡谷的奖励。 --温迪
 ```
