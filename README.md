@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-回首某个瞬间，下个瞬间即告消逝。 --佚名
+美丽的不是这个世界，而是接受了这个世界的你的眼睛。 --玖兰枢
 ```
