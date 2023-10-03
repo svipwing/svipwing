@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-点亮星火，眺望未来。 --点亮星火
+污泥覆玉，顽石掩璞，痛哉！痛哉！ --马均
 ```
