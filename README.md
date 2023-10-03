@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果忘记你那么容易，那我爱你干嘛！ --佚名
+宇宙有限，思想无限。 --纳兰音韵
 ```
