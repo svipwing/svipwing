@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你的人生只有柠檬，不妨配盐喝点龙舌兰。 --佚名
+如果忘记你那么容易，那我爱你干嘛！ --佚名
 ```
