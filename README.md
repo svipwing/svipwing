@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-污泥覆玉，顽石掩璞，痛哉！痛哉！ --马均
+当人们做不到一些事情的时候，他们会对你说你也同样不能。 --克里斯·加德纳
 ```
