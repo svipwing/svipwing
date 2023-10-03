@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-现世为梦，夜梦为真。 --佚名
+如果你的人生只有柠檬，不妨配盐喝点龙舌兰。 --佚名
 ```
