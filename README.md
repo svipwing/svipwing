@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风声细碎烛影乱，相思浓时情转淡。 --陈涛
+好好学习，天天向上。 --毛泽东
 ```
