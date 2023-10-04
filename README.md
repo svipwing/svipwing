@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-点亮星火，眺望未来。 --点亮星火
+竹杖芒鞋轻胜马，谁怕？一蓑烟雨任平生。 --佚名
 ```
