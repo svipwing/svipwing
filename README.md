@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-握不住的沙，不如扬了它。 --佚名
+看惯黑夜的人不应该习惯黑夜，而应该更习惯光明。 --罗翔
 ```
