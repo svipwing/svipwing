@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-醉卧沙场君莫笑，古来征战几人回？ --王翰
+点亮星火，眺望未来。 --点亮星火
 ```
