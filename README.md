@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在东京的天空上，我们决定性的改变了世界的模样。 --佚名
+生尽欢，死无憾。 --陆游
 ```
