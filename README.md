@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-竹杖芒鞋轻胜马，谁怕？一蓑烟雨任平生。 --佚名
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 ```
