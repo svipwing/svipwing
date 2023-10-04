@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-看惯黑夜的人不应该习惯黑夜，而应该更习惯光明。 --罗翔
+风声细碎烛影乱，相思浓时情转淡。 --陈涛
 ```
