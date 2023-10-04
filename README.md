@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好好学习，天天向上。 --毛泽东
+醉卧沙场君莫笑，古来征战几人回？ --王翰
 ```
