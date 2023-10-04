@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生尽欢，死无憾。 --陆游
+生まれた意味などなかった。 --まふまふ
 ```
