@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生まれた意味などなかった。 --まふまふ
+无垢清净光，慧日破诸暗，能伏灾风火，普明照世间。 --鸠摩罗什
 ```
