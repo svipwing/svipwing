@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我们只看到自己的普通，可能就会错过特别的人生。 --佚名
+猎人永不孤单。 --佚名
 ```
