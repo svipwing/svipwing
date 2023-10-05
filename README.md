@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跨越光年，归来任是你。 --佚名
+似水流年是一个人所有的一切，只有这个东西，才真正归你所有。 --王小波
 ```
