@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有时候解释是不必要的，敌人不信你的解释，朋友无需你的解释 --李敖
+人是要整活的——没活了，可不就是死了么？ --佚名
 ```
