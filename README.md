@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无垢清净光，慧日破诸暗，能伏灾风火，普明照世间。 --鸠摩罗什
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 ```
