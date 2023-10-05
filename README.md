@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-消磨时间尚有更好的方法。想不想尝试一下？ --佚名
+世界是一场空虚的宇宙，有时候仍像是一个梦。 --小冰
 ```
