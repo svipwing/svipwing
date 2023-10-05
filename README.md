@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界是一场空虚的宇宙，有时候仍像是一个梦。 --小冰
+有时候解释是不必要的，敌人不信你的解释，朋友无需你的解释 --李敖
 ```
