@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-暴雨中前进，伞是倒划天空的船。 --佚名
+如果我们只看到自己的普通，可能就会错过特别的人生。 --佚名
 ```
