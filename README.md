@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-めまぐるしい景色の中,君だけが止まって見えた. --野田洋次郎
+逸一时，误一世。 --田所浩二
 ```
