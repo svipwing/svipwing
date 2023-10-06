@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我年轻，我傲娇。 --佚名
+总有一些东西，要用消失来证明珍贵。 --小翊韩墨
 ```
