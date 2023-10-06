@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-似水流年是一个人所有的一切，只有这个东西，才真正归你所有。 --王小波
+めまぐるしい景色の中,君だけが止まって見えた. --野田洋次郎
 ```
