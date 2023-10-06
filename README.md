@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我决定以人类的一个方法来感激你，我打算以身相许！ --佚名
+相思相见知何日？此时此夜难为情！ --李白
 ```
