@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相思相见知何日？此时此夜难为情！ --李白
+宇宙是蚂蚁的梦。 --佚名
 ```
