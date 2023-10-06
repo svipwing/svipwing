@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算被世界遗忘，我也会陪在你的身旁。 --纯白
+世上无难事，只要肯放弃。 --佚名
 ```
