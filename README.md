@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总有一些东西，要用消失来证明珍贵。 --小翊韩墨
+要优秀啊，不然怎么遇见优秀的人！ --佚名
 ```
