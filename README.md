@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-正因为不会发生，所以才叫奇迹。 --佚名
+我愿披挂长风扬鞭策马 去看去唱那四海之大 --佚名
 ```
