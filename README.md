@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-末将于禁，愿为曹家世代赴汤蹈火。 --佚名
+两个人从监狱的窗户往外看，一个看见了土地，一个看见了星星。 --空条徐伦
 ```
