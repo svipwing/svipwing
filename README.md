@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与其孤独，不如独孤！ --秋白
+若以色见我，以音声求我，是人行邪道，不能见如来。 --鸠摩罗什
 ```
