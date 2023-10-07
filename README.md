@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们总是在注意错过太多，却不注意自己拥有多少。 --佚名
+与其孤独，不如独孤！ --秋白
 ```
