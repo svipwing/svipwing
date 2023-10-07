@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那年，一定很美吧。 --幻空
+宣父犹能畏后生，丈夫未可轻年少。 --李白
 ```
