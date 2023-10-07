@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-长城之上，是千亿的星空，星空之上，是不灭的守望。 --李信
+正因为不会发生，所以才叫奇迹。 --佚名
 ```
