@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若以色见我，以音声求我，是人行邪道，不能见如来。 --鸠摩罗什
+所谓觉悟，乃是在漆黑的荒原中，开辟出一条属于自己的星光大道！ --乔鲁诺 · 乔巴拿
 ```
