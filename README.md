@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宣父犹能畏后生，丈夫未可轻年少。 --李白
+长城之上，是千亿的星空，星空之上，是不灭的守望。 --李信
 ```
