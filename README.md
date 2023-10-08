@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-胸不平何以平天下，乳不巨何以聚人心。 --佚名
+与君相别离，不知何日是归期，我如朝露转瞬晞。 --花散里
 ```
