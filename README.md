@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-醒时空为梦一场，事事俱忘，何处是吾乡。 --符华
+你的名字那么普通也就我听到会心头一怔。 --佚名
 ```
