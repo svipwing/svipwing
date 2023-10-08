@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每一个不曾起舞的日子，都是对生命的辜负。 --尼采
+没有人的文明毫无意义。 --马兆
 ```
