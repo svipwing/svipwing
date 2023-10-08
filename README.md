@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你执意追逐我的幻影，迟早会被真正的我打败。 --时光
+胸不平何以平天下，乳不巨何以聚人心。 --佚名
 ```
