@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-马踏祁连山河动，兵起玄黄奈何天！ --神马超
+如果你执意追逐我的幻影，迟早会被真正的我打败。 --时光
 ```
