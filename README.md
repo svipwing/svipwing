@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有人的文明毫无意义。 --马兆
+醒时空为梦一场，事事俱忘，何处是吾乡。 --符华
 ```
