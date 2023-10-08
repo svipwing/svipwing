@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为失去,所以明白。 --漩涡鸣人
+从今以后，你走你的路，我演我的戏。 --佚名
 ```
