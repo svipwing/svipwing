@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正走掉那次，关门声最小。 --@-南得你-
+有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
 ```
