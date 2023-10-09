@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦里还是醒不来的梦，窗外有道看不清的虹。 --jhn
+虚伪的眼泪，会伤害别人，虚伪的笑容，会伤害自己。 --佚名
 ```
