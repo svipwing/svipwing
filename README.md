@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与君相别离，不知何日是归期，我如朝露转瞬晞。 --花散里
+猛兽是单独的，牛羊则结队。 --鲁迅
 ```
