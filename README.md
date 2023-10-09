@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春风起，花飘零，梦醒时分，却有几多愁，上心头。 --太田顺也
+生活就是和过去再见，和未来遇见！ --佚名
 ```
