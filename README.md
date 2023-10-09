@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若是你所期望的，那定会得到强烈的回应。 --米津玄师
+梦里还是醒不来的梦，窗外有道看不清的虹。 --jhn
 ```
