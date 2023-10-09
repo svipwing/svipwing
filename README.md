@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿你无所畏惧，向阳而生。 --佚名
+春风起，花飘零，梦醒时分，却有几多愁，上心头。 --太田顺也
 ```
