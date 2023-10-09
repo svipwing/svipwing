@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活就是和过去再见，和未来遇见！ --佚名
+人生一途，如山路起伏，虽苦难万般，仍有触及云顶之时。 --钟离
 ```
