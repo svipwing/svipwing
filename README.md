@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虚伪的眼泪，会伤害别人，虚伪的笑容，会伤害自己。 --佚名
+在太上忘情却终究人非草木。 --佚名
 ```
