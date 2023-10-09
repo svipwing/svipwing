@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
+愿你无所畏惧，向阳而生。 --佚名
 ```
