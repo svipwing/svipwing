@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生一途，如山路起伏，虽苦难万般，仍有触及云顶之时。 --钟离
+好梦向来易醒。 --宫崎骏
 ```
