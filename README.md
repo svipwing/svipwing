@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在太上忘情却终究人非草木。 --佚名
+你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
 ```
