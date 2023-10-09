@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猛兽是单独的，牛羊则结队。 --鲁迅
+行到水穷处，坐看云起时。 --王维
 ```
