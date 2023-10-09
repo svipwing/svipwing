@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-行到水穷处，坐看云起时。 --王维
+若是你所期望的，那定会得到强烈的回应。 --米津玄师
 ```
