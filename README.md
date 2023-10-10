@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有人在陪你，你又怎么会看这些文字。 --佚名
+如果你仲记得我，就返转头啦。 --佚名
 ```
