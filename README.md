@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-漩涡无法击碎的磐岩，也终究会在时光的冲刷下磨损。 --钟离
+你，对，你，就是你，你是你。 --不到啊
 ```
