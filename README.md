@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
+隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
 ```
