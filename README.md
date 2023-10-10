@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每一个不曾起舞的日子，都是对生活的辜负！ --尼采
+成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
 ```
