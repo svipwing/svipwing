@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
+人而无仪，不死何为! --佚名
 ```
