@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若是你所期望的，那定会得到强烈的回应。 --米津玄师
+每一个不曾起舞的日子，都是对生活的辜负！ --尼采
 ```
