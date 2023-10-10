@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-闺中风暖，陌上草薰。 --江淹
+不驰于空想，不骛于虚声。 --佚名
 ```
