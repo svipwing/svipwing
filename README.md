@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好梦向来易醒。 --宫崎骏
+如果有人在陪你，你又怎么会看这些文字。 --佚名
 ```
