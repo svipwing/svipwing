@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有情人终成眷属，没钱人亲眼目睹。 --快手评论
+若是你所期望的，那定会得到强烈的回应。 --米津玄师
 ```
