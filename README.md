@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人而无仪，不死何为! --佚名
+漩涡无法击碎的磐岩，也终究会在时光的冲刷下磨损。 --钟离
 ```
