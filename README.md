@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-越想贴近事实，不明白的事情就越多。 --法斯
+木叶飞舞之处，火亦生生不息 --佚名
 ```
