@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所以我松开拳头用手握紧笔，作为自己作为人类也作为你。 --张颜齐
+我不承认需要有人牺牲的魔法，而且人与人的思念，可以超越魔法。 --佚名
 ```
