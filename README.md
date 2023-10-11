@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我不承认需要有人牺牲的魔法，而且人与人的思念，可以超越魔法。 --佚名
+世界是一场空虚的宇宙，有时候仍像是一个梦。 --小冰
 ```
