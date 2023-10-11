@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恐惧意味着“软弱”。 --新海诚
+越想贴近事实，不明白的事情就越多。 --法斯
 ```
