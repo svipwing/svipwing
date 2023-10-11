@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-行远自迩，登高自卑。 --戴圣
+充其量只是好奇罢了。 --佚名
 ```
