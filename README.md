@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-充其量只是好奇罢了。 --佚名
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 ```
