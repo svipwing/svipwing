@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-长大了，才能体会什么是责任！ --佚名
+未经审视的人生是不值得过的。 --苏格拉底
 ```
