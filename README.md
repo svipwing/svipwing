@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你可以用计算机创造美和艺术，计算机使生活更美好。 --保罗•格雷厄姆
+在不同的遭遇里我发现你的瞬间，有种不可言说的温柔直觉。 --郭顶
 ```
