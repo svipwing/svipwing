@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只对现实世界绝望过，却未对自己绝望过！ --佚名
+你在我规划的航程上，我在你投射的视线里。 --周佳顺
 ```
