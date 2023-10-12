@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像那句狠话：有一天，我一定会后悔的。 --此账号已注销
+我会和命运战斗，并且战胜给你看！ --剑崎一真
 ```
