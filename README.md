@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我会和命运战斗，并且战胜给你看！ --剑崎一真
+我只对现实世界绝望过，却未对自己绝望过！ --佚名
 ```
