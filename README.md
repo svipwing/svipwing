@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-毕竟西湖六月中，风光不与四时同。 --杨万里
+长大了，才能体会什么是责任！ --佚名
 ```
