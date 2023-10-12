@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿时光能缓，愿故人不散！ --佚名
+就像那句狠话：有一天，我一定会后悔的。 --此账号已注销
 ```
