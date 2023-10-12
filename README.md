@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你在我规划的航程上，我在你投射的视线里。 --周佳顺
+忘记了过去，就意味着背叛！ --佚名
 ```
