@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在不同的遭遇里我发现你的瞬间，有种不可言说的温柔直觉。 --郭顶
+毕竟西湖六月中，风光不与四时同。 --杨万里
 ```
