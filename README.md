@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-举世皆浊我独清，众人皆醉我独醒。 --屈原
+我一直注视着你，似近，似远。但你永远，看不见我…… --来自风平浪静的明天
 ```
