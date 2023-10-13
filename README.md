@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-未经审视的人生是不值得过的。 --苏格拉底
+我们感到不满的原因就在于我们试图不断地提高自己的要求。 --叔本华
 ```
