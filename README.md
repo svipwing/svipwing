@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
+温柔正确的人总是难以生存，因为这世界既不温柔，也不正确。 --佚名
 ```
