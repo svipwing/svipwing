@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-彼此这么了解，难怪注定似兄妹一对。 --林夕
+神即道，道即法，道法自然，如来。 --豆豆
 ```
