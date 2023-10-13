@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一定没有问题的！ --佚名
+忘情不如情忘，绝念不如念绝。 --王常月
 ```
