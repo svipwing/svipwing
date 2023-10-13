@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们感到不满的原因就在于我们试图不断地提高自己的要求。 --叔本华
+我的人生没有彩排，每天都是现场直播。 --吕小布
 ```
