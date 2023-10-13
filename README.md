@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-少年不惧岁月长，彼方尚有荣光在。 --耳东兔子
+如果你在看，我就是你的风景。如果你在听，我该有多幸运。 --周佳顺
 ```
