@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我一直注视着你，似近，似远。但你永远，看不见我…… --来自风平浪静的明天
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 ```
