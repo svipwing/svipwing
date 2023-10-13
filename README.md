@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的人生没有彩排，每天都是现场直播。 --吕小布
+举世皆浊我独清，众人皆醉我独醒。 --屈原
 ```
