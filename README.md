@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-忘情不如情忘，绝念不如念绝。 --王常月
+彼此这么了解，难怪注定似兄妹一对。 --林夕
 ```
