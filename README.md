@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对于永生之人，最大的敌人，是无聊。 --蓬莱山辉夜
+风月折断杨柳枝，琴瑟朝露挥掷成诗。 --龙小套
 ```
