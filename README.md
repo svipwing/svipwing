@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有一个喜欢你的人出现，一定不要凶她哦！ --瑶瑶
+不要随便贬低自己 --佚名
 ```
