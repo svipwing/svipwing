@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你在看，我就是你的风景。如果你在听，我该有多幸运。 --周佳顺
+失去的生命不能复归，也用不着复归。 --佚名
 ```
