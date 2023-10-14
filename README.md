@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
+哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
 ```
