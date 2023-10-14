@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们哭着降临世界，却可以笑着走向永恒。 --如果国宝会说话
+对于永生之人，最大的敌人，是无聊。 --蓬莱山辉夜
 ```
