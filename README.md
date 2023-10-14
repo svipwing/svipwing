@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我命令你，喜欢我！ --佚名
+停下脚步才注意到 世界被染得雪白。 --A39＆沙包P＆初音ミク
 ```
