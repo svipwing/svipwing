@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪里都去不了，就想念起大海来。 --佚名
+我们哭着降临世界，却可以笑着走向永恒。 --如果国宝会说话
 ```
