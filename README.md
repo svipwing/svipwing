@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能不能停下来，看看那个满眼泪花奔向你的我。 --网络
+哪里都去不了，就想念起大海来。 --佚名
 ```
