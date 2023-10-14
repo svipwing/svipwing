@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
+能不能停下来，看看那个满眼泪花奔向你的我。 --网络
 ```
