@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要随便贬低自己 --佚名
+我命令你，喜欢我！ --佚名
 ```
