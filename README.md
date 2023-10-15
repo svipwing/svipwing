@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生最好的三种状态：不期而遇、不言而喻、不药而愈——乃一俗人 --佚名
+春风得意马蹄疾,一日看尽长安花. --佚名
 ```
