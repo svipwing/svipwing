@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没人生来杰出。 --佚名
+相信自然，也相信自己。 --寻血猎犬
 ```
