@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有值不值得，只有愿不愿意。 --徐有容
+没人生来杰出。 --佚名
 ```
