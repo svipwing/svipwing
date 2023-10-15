@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望老师像帮我一样帮帮れいジ --佚名
+虽有遗憾，绝不后悔。 --佚名
 ```
