@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不负韶华，不忘初心。 --佚名
+憧憬，是距离了解最遥远的一种感情。 --佚名
 ```
