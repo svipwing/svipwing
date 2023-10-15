@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相信自然，也相信自己。 --寻血猎犬
+希望老师像帮我一样帮帮れいジ --佚名
 ```
