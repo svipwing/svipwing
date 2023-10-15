@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果分手的恋人还能做朋友，要不从没爱过，要不还在爱着。 --佚名
+没有值不值得，只有愿不愿意。 --徐有容
 ```
