@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬，是距离了解最遥远的一种感情。 --佚名
+如果分手的恋人还能做朋友，要不从没爱过，要不还在爱着。 --佚名
 ```
