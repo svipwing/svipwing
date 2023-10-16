@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界上的人都变成废柴，这个世界就没有废柴了。 --佚名
+古往传奇多少别离，我 只是不经意 遇到了你 --佚名
 ```
