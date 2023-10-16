@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春风得意马蹄疾,一日看尽长安花. --佚名
+暴雨中前进，伞是倒划天空的船。 --佚名
 ```
