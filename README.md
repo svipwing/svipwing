@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-古往传奇多少别离，我 只是不经意 遇到了你 --佚名
+理性的人追求的并非快乐，而只是避免痛苦。 --叔本华
 ```
