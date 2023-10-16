@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-闾阎扑地，钟鸣鼎食之家；舸舰迷津，青雀黄龙之舳。 --佚名
+世界上的人都变成废柴，这个世界就没有废柴了。 --佚名
 ```
