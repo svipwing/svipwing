@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-等到功成名就的一天，日月山川都来祝贺。 --佚名
+雾都伦敦的浪漫，是迷雾之下珍藏的一缕阳光。 --夙鱼
 ```
