@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逸一时，误一世。 --田所浩二
+等到功成名就的一天，日月山川都来祝贺。 --佚名
 ```
