@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-暴雨中前进，伞是倒划天空的船。 --佚名
+闾阎扑地，钟鸣鼎食之家；舸舰迷津，青雀黄龙之舳。 --佚名
 ```
