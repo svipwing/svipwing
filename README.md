@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-雾都伦敦的浪漫，是迷雾之下珍藏的一缕阳光。 --夙鱼
+你能预见，你能准备，你能承受，那你也能胜过不幸。 --佚名
 ```
