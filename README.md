@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要轻唤你的名字，我们的羁绊就永远不会消逝。 --晓佳奈
+我会一直喜欢到你不再需要我喜欢你为止。 --巫哲
 ```
