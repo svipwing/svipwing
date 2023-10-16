@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我会一直喜欢到你不再需要我喜欢你为止。 --巫哲
+私がこんなにそばにいるんだから少しは興味を持ってよ… --黒見セリカ
 ```
