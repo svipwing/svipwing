@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你能预见，你能准备，你能承受，那你也能胜过不幸。 --佚名
+只要轻唤你的名字，我们的羁绊就永远不会消逝。 --晓佳奈
 ```
