@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-理性的人追求的并非快乐，而只是避免痛苦。 --叔本华
+逸一时，误一世。 --田所浩二
 ```
