@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-过去的都该过去，值得记忆的才要留到现在。 --Naya
+看似美好的东西，往往藏着陷阱。 --佚名
 ```
