@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-刚好知交，刚好欢笑，刚好闪耀。 --陈亦洺
+趁着年轻，好好犯病。 --he
 ```
