@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要么打，要么跑，优柔寡断让人厌恶。 --青钢影
+无法忘却的，无法留念的，就让它随风去吧。 --GoodChing
 ```
