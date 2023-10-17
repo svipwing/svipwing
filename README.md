@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-浮天水送无穷树，带雨云埋一半山。 --佚名
+相信奇迹的人本身就和奇迹一样了不起啊 --佚名
 ```
