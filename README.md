@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我们总是等着自己做好准备，那可能这一生都在等待中度过了。 --佚名
+数人世相逢，百年欢笑，能得几回又。 --何梦桂
 ```
