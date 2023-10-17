@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无法忘却的，无法留念的，就让它随风去吧。 --GoodChing
+刚好知交，刚好欢笑，刚好闪耀。 --陈亦洺
 ```
