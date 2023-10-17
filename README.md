@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管你说再多的慌，只有自己的内心，是无法欺骗的啊。 --佚名
+如果我们总是等着自己做好准备，那可能这一生都在等待中度过了。 --佚名
 ```
