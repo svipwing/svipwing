@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-私がこんなにそばにいるんだから少しは興味を持ってよ… --黒見セリカ
+过去的都该过去，值得记忆的才要留到现在。 --Naya
 ```
