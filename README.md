@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-数人世相逢，百年欢笑，能得几回又。 --何梦桂
+人是要整活的——没活了，可不就是死了么？ --佚名
 ```
