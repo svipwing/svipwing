@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一瓶250ml的吊水，一共是3111滴。 --佚名
+人是要整活的——没活了，可不就是死了么？ --佚名
 ```
