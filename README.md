@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-放心交给我，不会动摇的。 --鲜花店少女芭莉
+没有比脚更长的路，没有比人更高的山。 --汪国真
 ```
