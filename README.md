@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-老来情味减，对别酒、怯流年。 --辛弃疾
+慢慢来，谁还没有一个努力的过程。 --pony
 ```
