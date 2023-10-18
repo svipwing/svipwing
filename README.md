@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有比脚更长的路，没有比人更高的山。 --汪国真
+功名万里外，心事一杯中。 --高适
 ```
