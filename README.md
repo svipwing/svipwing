@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相信奇迹的人本身就和奇迹一样了不起啊 --佚名
+生命中曾经有过的所有灿烂，原来终究，都需要用寂寞来偿还。 --马尔克斯
 ```
