@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有一天我也提起笔，或许是因为做创作比做读者更杀渴。 --见你时澜青，不见时生春
+怀念总是，突然怀念，不谈条件。 --五月天
 ```
