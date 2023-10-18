@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+如果有一天我也提起笔，或许是因为做创作比做读者更杀渴。 --见你时澜青，不见时生春
 ```
