@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命中曾经有过的所有灿烂，原来终究，都需要用寂寞来偿还。 --马尔克斯
+归期未如佳期至，巴山夜雨留荒词。 --佚名
 ```
