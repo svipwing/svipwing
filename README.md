@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢慢来，谁还没有一个努力的过程。 --pony
+知人者智，自知者明。 --佚名
 ```
