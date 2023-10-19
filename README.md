@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你觉得我可以的话，我会尽我所能……！ --冥界使者哈娜
+曾盛开过一朵，曾不会败落，曾在他眼中流淌过浩瀚的银河。 --南语
 ```
