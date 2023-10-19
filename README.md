@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天赋不能带来的东西，努力或许可以。 --佚名
+他山之石，可以攻玉。 --佚名
 ```
