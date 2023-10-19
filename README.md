@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-借问江潮与海水，何似君情与妾心？ --白居易
+如果你觉得我可以的话，我会尽我所能……！ --冥界使者哈娜
 ```
