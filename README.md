@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-他山之石，可以攻玉。 --佚名
+因为不可能，所以才值得相信。 --歌德
 ```
