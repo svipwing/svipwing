@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为不可能，所以才值得相信。 --歌德
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 ```
