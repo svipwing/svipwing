@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-時をまきもどしてみるかい？ --佚名
+团结的人民永远不被击败！ --佚名
 ```
