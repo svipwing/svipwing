@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-知人者智，自知者明。 --佚名
+天赋不能带来的东西，努力或许可以。 --佚名
 ```
