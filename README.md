@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-本想自省，却闭门思他人之过。 --氧化_小卡门
+繁花血景在那一赛季达到巅峰，却也止于巅峰。 --蝴蝶蓝
 ```
