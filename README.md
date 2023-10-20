@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-团结的人民永远不被击败！ --佚名
+如此生活30年，直到大厦崩塌。 --万能青年旅店
 ```
