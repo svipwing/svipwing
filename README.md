@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我点燃了火，却控制不了它。 --刘慈欣
+博学而笃志，切问而近思。 --佚名
 ```
