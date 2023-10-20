@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-繁花血景在那一赛季达到巅峰，却也止于巅峰。 --蝴蝶蓝
+我点燃了火，却控制不了它。 --刘慈欣
 ```
