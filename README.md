@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-あなたは敵だけど悪くない。 --水门
+本想自省，却闭门思他人之过。 --氧化_小卡门
 ```
