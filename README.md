@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如此生活30年，直到大厦崩塌。 --万能青年旅店
+总有一天，我要撕碎这片虚伪的星空。 --佚名
 ```
