@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-纵是年少风流可入画，却也自成风骨难笔拓。 --佚名
+アートは最高です！ --佚名
 ```
