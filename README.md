@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-アートは最高です！ --佚名
+哥哥也可以喜欢上我之外的女孩子，但只有音梦是不可以的！ --佚名
 ```
