@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总有一天，我要撕碎这片虚伪的星空。 --佚名
+成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
 ```
