@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-时间，捉摸不透。 --佚名
+憧憬是距离理解最遥远的感情。 --佚名
 ```
