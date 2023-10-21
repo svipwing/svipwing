@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哥哥也可以喜欢上我之外的女孩子，但只有音梦是不可以的！ --佚名
+你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
 ```
