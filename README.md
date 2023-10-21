@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们都是参天大树，都能摘星揽月。 --佚名
+失去故土的花朵，回不去，却也离不开。 --夏达
 ```
