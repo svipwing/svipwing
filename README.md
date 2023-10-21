@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生，三十年前看爹敬儿，三十年后看儿敬爹！ --白给少年洛初
+岂不罹凝寒？松柏有本性。 --刘桢
 ```
