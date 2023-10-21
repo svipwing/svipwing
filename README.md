@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你能在浪费时间中获得乐趣，就不算浪费时间。 --罗素
+年少时，当妈妈永久离开我的那一刻：往后的心脏又软又硬。 --王烁焱
 ```
