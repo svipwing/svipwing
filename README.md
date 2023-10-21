@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-失去故土的花朵，回不去，却也离不开。 --夏达
+时间，捉摸不透。 --佚名
 ```
