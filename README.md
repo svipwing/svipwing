@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬是距离理解最遥远的感情。 --佚名
+不要轻易的口出狂言，那样只会透露出你的软弱。 --佚名
 ```
