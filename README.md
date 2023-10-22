@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们各自努力，最高处见。 --佚名
+爱欲于人，犹如执炬，逆风而行，必有烧手之患。 --佚名
 ```
