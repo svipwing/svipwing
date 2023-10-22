@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有钱人的生活，往往就是这么朴实无华，且枯燥。 --佚名
+我们各自努力，最高处见。 --佚名
 ```
