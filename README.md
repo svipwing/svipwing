@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人间忽晚，山河已秋。 --亦沫不吃鱼
+有钱人的生活，往往就是这么朴实无华，且枯燥。 --佚名
 ```
