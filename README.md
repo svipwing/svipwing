@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这一次，我试着向你奔来，不问归期。 --葭樱
+经过上千年的修炼，你学到的就是这个吗？ --神龙许愿
 ```
