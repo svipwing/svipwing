@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-百般乐器，唢呐为王；不是升天，就是拜堂。 --佚名
+人是要整活的——没活了，可不就是死了么？ --佚名
 ```
