@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-经过上千年的修炼，你学到的就是这个吗？ --神龙许愿
+无论世界如何改变，我们都将永不分离。 --维多利加
 ```
