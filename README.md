@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我觉得这个世上这么多人，可是没有人想听我讲话。 --佚名
+百般乐器，唢呐为王；不是升天，就是拜堂。 --佚名
 ```
