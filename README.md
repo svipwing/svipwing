@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-戒除欲望，控制行为，充实生活，美好的世界。 --yuanziyu
+人间忽晚，山河已秋。 --亦沫不吃鱼
 ```
