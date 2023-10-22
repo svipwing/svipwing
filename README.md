@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们生活在阴沟里，但有人依然仰望星空。 --陈念
+这一次，我试着向你奔来，不问归期。 --葭樱
 ```
