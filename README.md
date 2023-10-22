@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无论世界如何改变，我们都将永不分离。 --维多利加
+现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
 ```
