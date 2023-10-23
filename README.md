@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些日子眨眨眼一下子就过去了，然后永远怀念。 --佚名
+修道者，逆天而行，注定要一生孤独。 --耳根
 ```
