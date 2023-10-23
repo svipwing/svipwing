@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我也想杀死伤痛，让那恩怨有始有终。 --刘森
+不管你说再多的慌，只有自己的内心，是无法欺骗的啊。 --佚名
 ```
