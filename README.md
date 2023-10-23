@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你还有好多未完成的梦，你有什么理由停下脚步 --佚名
+地球只有一个，而欧派有两个。 --佚名
 ```
