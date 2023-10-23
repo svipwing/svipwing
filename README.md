@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我能唱歌，因为我并不孤单！ --澁谷香音
+你还有好多未完成的梦，你有什么理由停下脚步 --佚名
 ```
