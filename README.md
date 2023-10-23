@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
+我也想杀死伤痛，让那恩怨有始有终。 --刘森
 ```
