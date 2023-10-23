@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-修道者，逆天而行，注定要一生孤独。 --耳根
+生活原本沉闷，但跑起来就会有风。 --佚名
 ```
