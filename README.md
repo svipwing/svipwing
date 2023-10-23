@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活原本沉闷，但跑起来就会有风。 --佚名
+猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
 ```
