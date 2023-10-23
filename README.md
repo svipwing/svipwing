@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-地球只有一个，而欧派有两个。 --佚名
+趁着年轻，好好犯病。 --he
 ```
