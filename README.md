@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-馀情渺渺，茂林觞咏如今悄。 --张炎
+我爱的人也爱着我，对我来说这简直是个奇迹。 --佚名
 ```
