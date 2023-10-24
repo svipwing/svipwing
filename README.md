@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果不能忠于自己的心，胜负又有什么价值呢？ --佚名
+人是要整活的——没活了，可不就是死了么？ --佚名
 ```
