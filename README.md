@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我爱的人也爱着我，对我来说这简直是个奇迹。 --佚名
+什么都无法舍弃的人，什么都无法改变 。 --阿尔敏
 ```
