@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-You complete me ! --joker
+如果不能忠于自己的心，胜负又有什么价值呢？ --佚名
 ```
