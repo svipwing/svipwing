@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-难过从来就不能解决任何问题 --佚名
+春天来得很慢，春天才有浪漫。 --佚名
 ```
