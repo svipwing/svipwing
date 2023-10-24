@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能保护好大哥，我已经很满足了。 --Mr.Chen
+年华书写着故事，故事久存于心田。 --唐艺铭
 ```
