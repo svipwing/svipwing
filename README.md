@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-什么都无法舍弃的人，什么都无法改变 。 --阿尔敏
+能保护好大哥，我已经很满足了。 --Mr.Chen
 ```
