@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-其实美丽的故事都是没有结局的，只因为它没有结局所以才会美丽。 --佚名
+善思博学，努力进取。 --张万军
 ```
