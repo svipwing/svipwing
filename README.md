@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
+曲高必然和寡，英雄总是孤独。 --帆仔
 ```
