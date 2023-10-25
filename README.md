@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-善思博学，努力进取。 --张万军
+爱,其实很简单，困难的是去接受它。 --佚名
 ```
