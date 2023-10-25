@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-年华书写着故事，故事久存于心田。 --唐艺铭
+无论现在多么的不开心，你要相信，明天会比今天更好。 --东野圭吾
 ```
