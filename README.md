@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-曲高必然和寡，英雄总是孤独。 --帆仔
+其实美丽的故事都是没有结局的，只因为它没有结局所以才会美丽。 --佚名
 ```
