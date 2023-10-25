@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无论现在多么的不开心，你要相信，明天会比今天更好。 --东野圭吾
+谁能让我开心，我就喜欢谁 --佚名
 ```
