@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谁能让我开心，我就喜欢谁 --佚名
+我忘记了所有悲剧，所见皆是奇迹。 --空洞骑士
 ```
