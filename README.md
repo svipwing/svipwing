@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们就这样，生活在此地并不断离别。 --后崩坏书
+和你们这些少爷不同，我们光是活着就竭尽全力了。 --佚名
 ```
