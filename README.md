@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我忘记了所有悲剧，所见皆是奇迹。 --空洞骑士
+我们就这样，生活在此地并不断离别。 --后崩坏书
 ```
