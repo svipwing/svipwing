@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-和你们这些少爷不同，我们光是活着就竭尽全力了。 --佚名
+我们各自努力，最高处见！ --佚名
 ```
