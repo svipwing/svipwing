@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要太小看人类了！ --佚名
+我之所以想变强，是为了活得轻松写意。 --佚名
 ```
