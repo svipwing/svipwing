@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-労働者の命は何よりも大切です。 --佚名
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 ```
