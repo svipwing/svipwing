@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风烟俱净，天山共色。从流飘荡，任意东西。 --吴均
+吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
 ```
