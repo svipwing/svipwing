@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在东京的天空上，我们决定性的改变了世界的模样。 --佚名
+我的人生没有彩排，每天都是现场直播。 --吕小布
 ```
