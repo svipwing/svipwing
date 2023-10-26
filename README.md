@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我曾踏足山巅，也曾进入低谷，二者都让我受益良多！ --佚名
+风烟俱净，天山共色。从流飘荡，任意东西。 --吴均
 ```
