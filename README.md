@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自责要短暂，不过要长久铭记。 --佚名
+今后无论发生什么事也好，这个左手上的⋯⋯都是同伴的记号！ --尾田荣一郎
 ```
