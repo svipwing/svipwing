@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的人生没有彩排，每天都是现场直播。 --吕小布
+我觉得百无聊赖，可我却经常什么事也不干。 --陀思妥耶夫斯基
 ```
