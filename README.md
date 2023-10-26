@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我之所以想变强，是为了活得轻松写意。 --佚名
+我曾踏足山巅，也曾进入低谷，二者都让我受益良多！ --佚名
 ```
