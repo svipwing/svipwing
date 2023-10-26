@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我觉得百无聊赖，可我却经常什么事也不干。 --陀思妥耶夫斯基
+我们都还没有说再见，所以我不会把它当做离别。 --空/莹
 ```
