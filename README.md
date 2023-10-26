@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们都还没有说再见，所以我不会把它当做离别。 --空/莹
+労働者の命は何よりも大切です。 --佚名
 ```
