@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
+忘掉一个人的劣根性就像把千辛万苦赚来的钱扔掉一样。 --叔本华
 ```
