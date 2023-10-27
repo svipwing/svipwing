@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-命运啊，说是注定，不如说是你忘了是在何时做了选择。 --佚名
+就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
 ```
