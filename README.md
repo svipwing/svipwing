@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为天地立心，为生民立命，为往圣继绝学，为万世开太平。 --张载
+你背朝太阳，就只能看到自己的影子。 --纪伯伦
 ```
