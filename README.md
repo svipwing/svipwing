@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-前路还很长，我会越来越好，你也不会差。我们各自珍重。 --佚名
+命运啊，说是注定，不如说是你忘了是在何时做了选择。 --佚名
 ```
