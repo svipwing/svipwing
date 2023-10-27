@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-忘掉一个人的劣根性就像把千辛万苦赚来的钱扔掉一样。 --叔本华
+北方有佳人，绝世而独立。 --李延年
 ```
