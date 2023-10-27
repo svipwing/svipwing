@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
+有朝一日，是否会有人纪念他们。 --The New Order:Last Days of Europe
 ```
