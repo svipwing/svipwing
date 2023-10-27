@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像那句狠话：有一天，我一定会后悔的。 --此账号已注销
+永远相信，美好的事情即将发生。 --佚名
 ```
