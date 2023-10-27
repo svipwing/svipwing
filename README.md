@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-永远相信，美好的事情即将发生。 --佚名
+为天地立心，为生民立命，为往圣继绝学，为万世开太平。 --张载
 ```
