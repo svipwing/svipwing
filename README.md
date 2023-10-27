@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
+前路还很长，我会越来越好，你也不会差。我们各自珍重。 --佚名
 ```
