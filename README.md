@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-嘿！活着是件很好的事 --佚名
+梦终于醒了啊，期盼他日我们再萍水相逢吧。 --佚名
 ```
