@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些人坐飞机就能见到，有些人坐时光机才可以。 --佚名
+Via Soul! --佚名
 ```
