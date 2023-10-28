@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Via Soul! --佚名
+嘿！活着是件很好的事 --佚名
 ```
