@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有朝一日，是否会有人纪念他们。 --The New Order:Last Days of Europe
+于是荆轲遂就车而去，终已不顾。 --佚名
 ```
