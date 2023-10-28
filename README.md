@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-忘掉生日，忘掉青涩的诗，忘掉他不厌其烦夜夜追逐他影子。 --邱意
+停下脚步才注意到 世界被染得雪白。 --A39＆沙包P＆初音ミク
 ```
