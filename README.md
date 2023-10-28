@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-于是荆轲遂就车而去，终已不顾。 --佚名
+对于智慧文明来说，它们最后总变得和自己的思想一样大。 --刘慈欣
 ```
