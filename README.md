@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-停下脚步才注意到 世界被染得雪白。 --A39＆沙包P＆初音ミク
+暴雨中前进，伞是倒划天空的船。 --佚名
 ```
