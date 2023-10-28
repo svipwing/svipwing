@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦终于醒了啊，期盼他日我们再萍水相逢吧。 --佚名
+生命的意义这件事，想必人类自己也不明白吧。 --莉莉丝
 ```
