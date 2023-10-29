@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你可不是什么普通女孩，你是我的女孩。 --佚名
+最最好的，与最最痛苦的，是一样的。 --玛德莱娜
 ```
