@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-多少事，从来急，天地转，光阴迫，一万年太久，只争朝夕。 --毛泽东
+你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
 ```
