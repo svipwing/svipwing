@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-老是低着头，幸福可是会离你而去的喔。 --佚名
+趁着年轻，好好犯病。 --he
 ```
