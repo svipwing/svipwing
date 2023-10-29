@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-方向比速度重要。 --巴菲特
+风吹柳叶遮黄雀，薄翅不觉已落蝉。 --李落蝉
 ```
