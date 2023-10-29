@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风吹柳叶遮黄雀，薄翅不觉已落蝉。 --李落蝉
+多少事，从来急，天地转，光阴迫，一万年太久，只争朝夕。 --毛泽东
 ```
