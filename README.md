@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最最好的，与最最痛苦的，是一样的。 --玛德莱娜
+我为打破你周遭的囚墙而来，览尽世界，为你沉沦。 --佚名
 ```
