@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔着屏幕轻易产生感情的你，肯定很孤独吧。 --佚名
+乘清风展白翼与君行，群青狭间，常夏之岛。 --西园美鱼
 ```
