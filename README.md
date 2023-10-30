@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无论做什么，记得为自己而做，那就毫无怨言。 --佚名
+隔着屏幕轻易产生感情的你，肯定很孤独吧。 --佚名
 ```
