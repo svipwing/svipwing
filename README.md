@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-思君如流水，何有穷已时。 --徐干
+就算风吹散了冰雪，想念也会留存下来。 --佚名
 ```
