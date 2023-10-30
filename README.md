@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个世界对温柔的你可一点也不温柔呀。 --佚名
+无聊的并不是时间，而是平庸无奇的我。 --樱花庄的宠物女孩​
 ```
