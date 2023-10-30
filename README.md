@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-似花还似非花，也无人惜从教坠。 --苏轼
+一个人可以被毁灭，但不能被打败。 --海明威
 ```
