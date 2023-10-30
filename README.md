@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人啊，是利益的作品。 --陈和锐
+似花还似非花，也无人惜从教坠。 --苏轼
 ```
