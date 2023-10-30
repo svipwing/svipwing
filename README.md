@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个人可以被毁灭，但不能被打败。 --海明威
+这个世界对温柔的你可一点也不温柔呀。 --佚名
 ```
