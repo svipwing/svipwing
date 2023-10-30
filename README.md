@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-海棠未雨，梨花先雪，一半春休。 --王雱
+因为你喜欢海，所以我一直浪。 --佚名
 ```
