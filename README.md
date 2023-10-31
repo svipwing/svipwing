@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我为鱼，道为网，河为天……那执网的老者便是造化！ --耳根
+大胆狂徒，敬畏万能的神兽吧！ --丰收神兽梅丽尔
 ```
