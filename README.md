@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我觉得这个世上这么多人，可是没有人想听我讲话。 --佚名
+一切真实与虚假，一切辉煌与破灭，只存后人之言，只存岁月之中。 --耳根
 ```
