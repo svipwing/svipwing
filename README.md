@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一切真实与虚假，一切辉煌与破灭，只存后人之言，只存岁月之中。 --耳根
+要优秀啊，不然怎么遇见优秀的人！ --佚名
 ```
