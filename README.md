@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-月影积陈春秋，垣壁剥落冬夏。 --佚名
+我觉得这个世上这么多人，可是没有人想听我讲话。 --佚名
 ```
