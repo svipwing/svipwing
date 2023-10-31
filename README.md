@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要优秀啊，不然怎么遇见优秀的人！ --佚名
+忘却并不是可怕的，而是你不肯。 --佚名
 ```
