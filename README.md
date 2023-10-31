@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿你的青春如花般绽放。 --佚名
+我为鱼，道为网，河为天……那执网的老者便是造化！ --耳根
 ```
