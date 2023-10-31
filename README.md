@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-大胆狂徒，敬畏万能的神兽吧！ --丰收神兽梅丽尔
+末将于禁，愿为曹家世代赴汤蹈火。 --佚名
 ```
