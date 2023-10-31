@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-取法于上，仅得为中；取法于中，故为其下。 --佚名
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 ```
