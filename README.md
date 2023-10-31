@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-末将于禁，愿为曹家世代赴汤蹈火。 --佚名
+取法于上，仅得为中；取法于中，故为其下。 --佚名
 ```
