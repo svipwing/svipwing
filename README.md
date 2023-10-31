@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我不是萝莉控，是妹控啊！ --佚名
+愿你的青春如花般绽放。 --佚名
 ```
