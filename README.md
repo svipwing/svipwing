@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-乘清风展白翼与君行，群青狭间，常夏之岛。 --西园美鱼
+我不是萝莉控，是妹控啊！ --佚名
 ```
