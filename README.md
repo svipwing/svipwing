@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-嗯，明白。我们是天人的Gundam Meister --佚名
+每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
 ```
