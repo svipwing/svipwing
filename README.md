@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-太阳遥不可及，少年一往无前。 --酱子贝
+柴门闻犬吠，风雪夜归人。 --刘长卿
 ```
