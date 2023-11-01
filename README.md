@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你说一声，我也默认，我们在这月光下十指生根。 --毛不易
+我是个偶尔会发疯的人啊！ --佚名
 ```
