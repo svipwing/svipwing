@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宇宙中只有一个地球，毁掉它容易，回头路难走。 --第五薰
+嗯，明白。我们是天人的Gundam Meister --佚名
 ```
