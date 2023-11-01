@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只对我喜欢的人说真话，我不喜欢你。 --佚名
+太阳遥不可及，少年一往无前。 --酱子贝
 ```
