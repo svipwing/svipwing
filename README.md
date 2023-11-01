@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-站在黑暗里，连你的影子都会抛弃你。 --一茉
+我只对我喜欢的人说真话，我不喜欢你。 --佚名
 ```
