@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我是个偶尔会发疯的人啊！ --佚名
+山海自有归期，风雨自有相逢，意难平终将和解，万事终将如意。 --佚名
 ```
