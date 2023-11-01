@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
+你说一声，我也默认，我们在这月光下十指生根。 --毛不易
 ```
