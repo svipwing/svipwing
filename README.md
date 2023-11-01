@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山海自有归期，风雨自有相逢，意难平终将和解，万事终将如意。 --佚名
+最折磨人的或许不是一场惨烈战争，而是烦琐的日常生活。 --佚名
 ```
