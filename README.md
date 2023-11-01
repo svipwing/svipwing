@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-柴门闻犬吠，风雪夜归人。 --刘长卿
+宇宙中只有一个地球，毁掉它容易，回头路难走。 --第五薰
 ```
