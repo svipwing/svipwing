@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-圣人不死，大盗不止。 --庄子及门生（外篇）
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 ```
