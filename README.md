@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个世界很大，告别的方式有多少种，人生的正确答案就有多少个。 --佚名
+圣人不死，大盗不止。 --庄子及门生（外篇）
 ```
