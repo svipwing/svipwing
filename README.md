@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我所描绘的一切或许并非真实，然而我的感受绝无虚假。 --雨狸
+酒逢知己千杯少，话不投机半句多。 --佚名
 ```
