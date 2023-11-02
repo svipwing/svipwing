@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-全世界无产者，联合起来。 --毛泽东
+我所描绘的一切或许并非真实，然而我的感受绝无虚假。 --雨狸
 ```
