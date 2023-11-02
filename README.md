@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最折磨人的或许不是一场惨烈战争，而是烦琐的日常生活。 --佚名
+这个世界很大，告别的方式有多少种，人生的正确答案就有多少个。 --佚名
 ```
