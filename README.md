@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦终于醒了啊，期盼他日我们再萍水相逢吧。 --佚名
+饭可以一日不吃，水可以一日不喝，但题不可以一日不贺。 --佚名
 ```
