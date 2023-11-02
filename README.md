@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-酒逢知己千杯少，话不投机半句多。 --佚名
+幸福破灭之时，总是伴随着血腥味。 --吾峠呼世晴
 ```
