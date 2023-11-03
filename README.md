@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有你在的日子才是我的日常。 --佚名
+不幸的是我们等了那么多年，幸运的我们那么多年过去还一直在一起 --佚名
 ```
