@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在这个真实得太过分的世界里，每个人都需要仰望星空。 --米哈游
+资本来到世间，从头到脚每个毛孔都滴着血和肮脏的东西。 --卡尔·海因里希·马克思
 ```
