@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你是这个世界上我最在乎的人之一了，可是我不知道这算不算爱。 --独木舟
+两个人从监狱的窗户往外看，一个看见了土地，一个看见了星星。 --空条徐伦
 ```
