@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生生生生暗生始，死死死死冥死终。 --空海法师
+宅，是一种生活状态；死宅，是一种人生境界… --佚名
 ```
