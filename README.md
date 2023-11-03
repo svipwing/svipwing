@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望月光带你回到我身边。 --茶褐
+在这个真实得太过分的世界里，每个人都需要仰望星空。 --米哈游
 ```
