@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-秋风起兮白云飞，草木黄落兮雁南归。 --刘彻
+过去的不再回来，回来的不再美好。 --窃格瓦斯·凡
 ```
