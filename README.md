@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要让美好的回忆成为抹不掉的刀伤。 --熟鱼
+因为你喜欢海，所以我一直浪。 --佚名
 ```
