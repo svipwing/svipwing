@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果政府不能解决问题, 那它本身就成为问题! --佚名
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 ```
