@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-倘若只是为了驱赶心中的寂寞，找谁都可以的。 --佚名
+如果政府不能解决问题, 那它本身就成为问题! --佚名
 ```
