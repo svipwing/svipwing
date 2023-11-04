@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-缘起，在人群中，我看见你。缘灭，我看见你，在人群中。 --佚名
+倘若只是为了驱赶心中的寂寞，找谁都可以的。 --佚名
 ```
