@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-鲁莽，也比怯懦更接近勇敢。 --狂铁
+缘起，在人群中，我看见你。缘灭，我看见你，在人群中。 --佚名
 ```
