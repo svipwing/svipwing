@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我想你们的努力一定会有回报的 --佚名
+人的痛苦会把自己折磨到多深呢？ --佚名
 ```
