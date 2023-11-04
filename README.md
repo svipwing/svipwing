@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那天，我听到了种子破土的声音，又细微又坚定。 --夏达
+不要让美好的回忆成为抹不掉的刀伤。 --熟鱼
 ```
