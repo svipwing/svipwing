@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人的痛苦会把自己折磨到多深呢？ --佚名
+下次见到你时，希望你也能成为永不凋零的希望之花。 --小南
 ```
