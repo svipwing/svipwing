@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爆竹声中一岁除，春风送暖入屠苏。 --王安石
+我想要山盟，你却带给我海誓。 --佚名
 ```
