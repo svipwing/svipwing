@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-时间是美好的，他让我们相遇；时间也是混蛋的，他又让我们分别。 --张同学
+爆竹声中一岁除，春风送暖入屠苏。 --王安石
 ```
