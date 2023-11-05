@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-可不可以，陪我长大，而不是教我长大。 --林帝浣
+成年人的世界没有容易二字。 --天气预报员
 ```
