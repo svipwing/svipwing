@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们感到不满的原因就在于我们试图不断地提高自己的要求。 --叔本华
+时间是美好的，他让我们相遇；时间也是混蛋的，他又让我们分别。 --张同学
 ```
