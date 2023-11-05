@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-他山之石，可以攻玉。 --佚名
+月儿弯弯照九州，几家欢乐几家愁。 --佚名
 ```
