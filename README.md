@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+我们感到不满的原因就在于我们试图不断地提高自己的要求。 --叔本华
 ```
