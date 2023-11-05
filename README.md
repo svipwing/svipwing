@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-过去的不再回来，回来的不再美好。 --窃格瓦斯·凡
+智慧需要沉淀，积累才能够饱满。 --路法
 ```
