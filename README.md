@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我想要山盟，你却带给我海誓。 --佚名
+如果你的眉眼，肯为我停留半分，又怎会不知我情比海深。 --佚名
 ```
