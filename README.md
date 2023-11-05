@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小鸟......是无法追上飞龙的。 --佚名
+可不可以，陪我长大，而不是教我长大。 --林帝浣
 ```
