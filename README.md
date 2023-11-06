@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我来做最不想做的事情了。 --佚名
+在不同的遭遇里我发现你的瞬间，有种不可言说的温柔直觉。 --郭顶
 ```
