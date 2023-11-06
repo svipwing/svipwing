@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要么忙着生存要么赶着去死，人总要做点什么 --佚名
+我来做最不想做的事情了。 --佚名
 ```
