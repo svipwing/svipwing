@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人性一个最特别的弱点就是：在意别人如何看待自己。 --佚名
+如果你执意追逐我的幻影，迟早会被真正的我打败。 --时光
 ```
