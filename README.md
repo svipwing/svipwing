@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-结发为夫妻，恩爱两不疑。 --佚名
+人性一个最特别的弱点就是：在意别人如何看待自己。 --佚名
 ```
