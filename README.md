@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-舞低杨柳楼心月，歌尽桃花扇底风。 --晏几道
+结发为夫妻，恩爱两不疑。 --佚名
 ```
