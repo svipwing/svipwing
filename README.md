@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你执意追逐我的幻影，迟早会被真正的我打败。 --时光
+白日放歌须纵酒，青春作伴好还乡。 --杜甫
 ```
