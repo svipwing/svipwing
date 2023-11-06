@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一切悲剧皆始于无能。 --hdcs
+要么忙着生存要么赶着去死，人总要做点什么 --佚名
 ```
