@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-白日放歌须纵酒，青春作伴好还乡。 --杜甫
+一切悲剧皆始于无能。 --hdcs
 ```
