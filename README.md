@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-余生向阳，往后如意。 --鹤空流乂
+无名小卒，还是名扬天下。 --佚名
 ```
