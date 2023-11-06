@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无名小卒，还是名扬天下。 --佚名
+暴雨中前进，伞是倒划天空的船。 --佚名
 ```
