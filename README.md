@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你还有好多未完成的梦，你有什么理由停下脚步 --佚名
+奋斗的目标就是为了躺平，就是为了过上不被闹钟叫醒的日子。 --佚名
 ```
