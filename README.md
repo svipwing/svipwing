@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-等闲识得东风面，万紫千红总是春。 --朱熹
+你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
 ```
