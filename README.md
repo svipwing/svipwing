@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-奋斗的目标就是为了躺平，就是为了过上不被闹钟叫醒的日子。 --佚名
+蒹葭采采，白露未已。所谓伊人，在水之涘。 --佚名
 ```
