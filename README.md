@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人这辈子没法做太多事情，所以每一件都要做到精彩绝伦。 --佚名
+等闲识得东风面，万紫千红总是春。 --朱熹
 ```
