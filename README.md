@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-很多事只是最初看起来有意义，但经过多次重复就慢慢失去了意义。 --叔本华
+你还有好多未完成的梦，你有什么理由停下脚步 --佚名
 ```
