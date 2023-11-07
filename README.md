@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-遗忘比绝望更强有力。 --叔本华
+要优秀啊，不然怎么遇见优秀的人！ --佚名
 ```
