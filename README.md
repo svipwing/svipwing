@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
+我是他的盾牌，我是他的利刃。我深知他，连同他的过去和未来。 --佚名
 “我从未拥有” --佚名
 ```
