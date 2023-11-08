@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有比脚更长的路，没有比人更高的山。 --汪国真
+希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
 “我从未拥有” --佚名
 ```
