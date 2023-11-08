@@ -19,5 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-别的禅，我都不修。独你是我的禅，秀色可餐 --佚名
+“你失去了”
+“我从未拥有” --佚名
 ```
