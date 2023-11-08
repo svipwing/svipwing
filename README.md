@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当眼泪流下来，才知道，分开也是另一种明白。 --佚名
+搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
 ```
