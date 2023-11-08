@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
+醒来，方知是梦，天色幽幽，怅然不已。 --龙应台
 ```
