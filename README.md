@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-“你失去了”
+没有比脚更长的路，没有比人更高的山。 --汪国真
 “我从未拥有” --佚名
 ```
