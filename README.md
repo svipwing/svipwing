@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我是他的盾牌，我是他的利刃。我深知他，连同他的过去和未来。 --佚名
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 “我从未拥有” --佚名
 ```
