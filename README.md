@@ -19,5 +19,5 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-露从今夜白，月是故乡明。 --杜甫
+别的禅，我都不修。独你是我的禅，秀色可餐 --佚名
 ```
