@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-神即道，道即法，道法自然，如来。 --豆豆
+我薛洋，晓天地，晓人心，但终究不晓星尘。 --佚名
 “我从未拥有” --佚名
 ```
