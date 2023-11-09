@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-老来情味减，对别酒、怯流年。 --辛弃疾
+邪王真眼是最强的 --佚名
 “我从未拥有” --佚名
 ```
