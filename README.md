@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生的真理，只是藏在平淡无味之中。 --佚名
+你说过，人最大的敌人是自己。 --贺涵
 “我从未拥有” --佚名
 ```
