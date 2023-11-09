@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-三尺书生，一介微命。 --王勃
+杂耍和唱歌的才需要掌声。 --佚名
 “我从未拥有” --佚名
 ```
