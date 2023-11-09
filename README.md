@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-邪王真眼是最强的 --佚名
+要是追不上光，那就变成光吧。 --小白想做你的唯一
 “我从未拥有” --佚名
 ```
