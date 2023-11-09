@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你说过，人最大的敌人是自己。 --贺涵
+老来情味减，对别酒、怯流年。 --辛弃疾
 “我从未拥有” --佚名
 ```
