@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所谓觉悟，乃是在漆黑的荒原中，开辟出一条属于自己的星光大道！ --乔鲁诺 · 乔巴拿
+神即道，道即法，道法自然，如来。 --豆豆
 “我从未拥有” --佚名
 ```
