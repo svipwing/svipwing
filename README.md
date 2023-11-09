@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我薛洋，晓天地，晓人心，但终究不晓星尘。 --佚名
+我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
 “我从未拥有” --佚名
 ```
