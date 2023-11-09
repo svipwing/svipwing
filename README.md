@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
+结果需要的是一个开始。没开始说什么都是废话。 --朴素
 “我从未拥有” --佚名
 ```
