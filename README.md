@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你的人生只有柠檬，不妨配盐喝点龙舌兰。 --佚名
+我站在阳台抽烟，我吸一口，风也吸一口，可能风也有烦恼吧。 --佚名
 “我从未拥有” --佚名
 ```
