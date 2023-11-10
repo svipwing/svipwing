@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最后我还想再拜托你一件事，希望你可以把我忘掉。 --珂朵莉·诺塔·瑟尼欧里斯
+有些事情我不看透，不是我笨，只是我太善良。 --佚名
 “我从未拥有” --佚名
 ```
