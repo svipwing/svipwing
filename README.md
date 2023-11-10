@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我站在阳台抽烟，我吸一口，风也吸一口，可能风也有烦恼吧。 --佚名
+生活中最重要的不是凯旋，而是奋斗。 --《人民日报》
 “我从未拥有” --佚名
 ```
