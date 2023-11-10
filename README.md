@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要是追不上光，那就变成光吧。 --小白想做你的唯一
+飘零的孤鸟，也有权利寻求幸福啊。 --佚名
 “我从未拥有” --佚名
 ```
