@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-飘零的孤鸟，也有权利寻求幸福啊。 --佚名
+最后我还想再拜托你一件事，希望你可以把我忘掉。 --珂朵莉·诺塔·瑟尼欧里斯
 “我从未拥有” --佚名
 ```
