@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些事情我不看透，不是我笨，只是我太善良。 --佚名
+人生而自由，却无往不在枷锁中。 --卢梭
 “我从未拥有” --佚名
 ```
