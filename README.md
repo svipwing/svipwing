@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-偶尔的停顿和修整，对于人生是非常必要的。 --佚名
+萧萧梧叶送寒声，江上秋风动客情。 --叶绍翁
 “我从未拥有” --佚名
 ```
