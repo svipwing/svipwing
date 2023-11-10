@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-它来自旅途的尽头、世界的边缘；来自你我心中，永不停歇。 --温迪
+神即道，道即法，道法自然，如来。 --豆豆
 “我从未拥有” --佚名
 ```
