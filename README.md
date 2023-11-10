@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生而自由，却无往不在枷锁中。 --卢梭
+如果你的人生只有柠檬，不妨配盐喝点龙舌兰。 --佚名
 “我从未拥有” --佚名
 ```
