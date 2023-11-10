@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-萧萧梧叶送寒声，江上秋风动客情。 --叶绍翁
+它来自旅途的尽头、世界的边缘；来自你我心中，永不停歇。 --温迪
 “我从未拥有” --佚名
 ```
