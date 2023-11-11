@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要想，去感受。 --边妤仙
+你是故意找茬是不是？ --华强
 “我从未拥有” --佚名
 ```
