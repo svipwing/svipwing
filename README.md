@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你会不会在某一个瞬间想起我，哪怕，一瞬间。 --Qicloud
+你需要找出面对明天的力量。 --佚名
 “我从未拥有” --佚名
 ```
