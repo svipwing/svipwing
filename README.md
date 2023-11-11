@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有什么胜利可言，挺住意味着一切。 --佚名
+不怕念起，唯恐觉迟，既已执手，此生不负。 --佚名
 “我从未拥有” --佚名
 ```
