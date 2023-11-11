@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不怕念起，唯恐觉迟，既已执手，此生不负。 --佚名
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 ```
