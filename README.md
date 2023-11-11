@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你需要找出面对明天的力量。 --佚名
+如果你是一匹千里马，那么请做自己的伯乐 --佚名
 “我从未拥有” --佚名
 ```
