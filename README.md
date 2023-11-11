@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你是故意找茬是不是？ --华强
+あなたは敵だけど悪くない。 --水门
 “我从未拥有” --佚名
 ```
