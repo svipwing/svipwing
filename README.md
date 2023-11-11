@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逸一时，误一世。 --田所浩二
+越想贴近事实，不明白的事情就越多。 --法斯
 “我从未拥有” --佚名
 ```
