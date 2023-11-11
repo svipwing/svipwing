@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-あなたは敵だけど悪くない。 --水门
+有什么胜利可言，挺住意味着一切。 --佚名
 “我从未拥有” --佚名
 ```
