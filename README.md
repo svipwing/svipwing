@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-暴雨中前进，伞是倒划天空的船。 --佚名
+你会不会在某一个瞬间想起我，哪怕，一瞬间。 --Qicloud
 “我从未拥有” --佚名
 ```
