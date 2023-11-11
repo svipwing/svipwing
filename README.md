@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的人生没有彩排，每天都是现场直播。 --吕小布
+不要想，去感受。 --边妤仙
 “我从未拥有” --佚名
 ```
