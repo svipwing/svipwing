@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-亲近你的朋友，但更要亲近你的敌人。 --佚名
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 ```
