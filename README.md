@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-投我以桃，报之以李。 --佚名
+要优秀啊，不然怎么遇见优秀的人！ --佚名
 “我从未拥有” --佚名
 ```
