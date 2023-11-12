@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你是一匹千里马，那么请做自己的伯乐 --佚名
+相思相见知何日？此时此夜难为情！ --李白
 “我从未拥有” --佚名
 ```
