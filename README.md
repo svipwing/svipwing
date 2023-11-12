@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+起来！歌唱！我们走向胜利！ --佚名
 “我从未拥有” --佚名
 ```
