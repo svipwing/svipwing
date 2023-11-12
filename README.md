@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正走掉那次，关门声最小。 --@-南得你-
+小孩子看了根本把持不住！ --佚名
 “我从未拥有” --佚名
 ```
