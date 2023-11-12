@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小孩子看了根本把持不住！ --佚名
+亲近你的朋友，但更要亲近你的敌人。 --佚名
 “我从未拥有” --佚名
 ```
