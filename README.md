@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要优秀啊，不然怎么遇见优秀的人！ --佚名
+真正走掉那次，关门声最小。 --@-南得你-
 “我从未拥有” --佚名
 ```
