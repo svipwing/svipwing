@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相思相见知何日？此时此夜难为情！ --李白
+应该在肩膀上长着自己的脑袋。 --佚名
 “我从未拥有” --佚名
 ```
