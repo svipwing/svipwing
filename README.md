@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-起来！歌唱！我们走向胜利！ --佚名
+黄鹤一去不复返，白云千载空悠悠。 --崔颢
 “我从未拥有” --佚名
 ```
