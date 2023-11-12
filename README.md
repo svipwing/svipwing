@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春风得意马蹄疾，一日看尽长安花。 --孟郊
+死亡不是生命的终点，遗忘才是。 --佚名
 “我从未拥有” --佚名
 ```
