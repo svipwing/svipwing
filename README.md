@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
+真可悲，你什么都不知道，在这个世界上没有什么是不重要的！ --佚名
 “我从未拥有” --佚名
 ```
