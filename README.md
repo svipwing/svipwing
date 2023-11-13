@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人间忽晚，山河已秋。 --亦沫不吃鱼
+我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
 “我从未拥有” --佚名
 ```
