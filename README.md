@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-赢得了时间就是赢得了一切。 --佚名
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 ```
