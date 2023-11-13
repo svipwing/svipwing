@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真可悲，你什么都不知道，在这个世界上没有什么是不重要的！ --佚名
+这无缘无故的攀比之心，是从何而来啊？ --钟离
 “我从未拥有” --佚名
 ```
