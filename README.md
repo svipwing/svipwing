@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-情到深处人孤独。 --佚名
+赢得了时间就是赢得了一切。 --佚名
 “我从未拥有” --佚名
 ```
