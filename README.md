@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-死亡不是生命的终点，遗忘才是。 --佚名
+有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
 “我从未拥有” --佚名
 ```
