@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-信心这个东西，什么时候都像个高楼大厦，但是里面会长白蚁。 --王小波
+人间忽晚，山河已秋。 --亦沫不吃鱼
 “我从未拥有” --佚名
 ```
