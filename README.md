@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-狂战似魔，深谋如鬼。 --佚名
+闻道者，朝生夕死，足尔；寻道者，忘生之死，憾尔。 --耳根
 “我从未拥有” --佚名
 ```
