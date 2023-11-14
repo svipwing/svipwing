@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一种事物，一种感情，一旦失衡，就会失去它原来该有的样子。 --乏味
+狂战似魔，深谋如鬼。 --佚名
 “我从未拥有” --佚名
 ```
