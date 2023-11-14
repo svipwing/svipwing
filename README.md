@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-落叶别树，飘零随风。客无所托，悲与此同。 --李白
+一种事物，一种感情，一旦失衡，就会失去它原来该有的样子。 --乏味
 “我从未拥有” --佚名
 ```
