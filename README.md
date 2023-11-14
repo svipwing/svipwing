@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这无缘无故的攀比之心，是从何而来啊？ --钟离
+最是人间留不住，朱颜辞镜花辞树。 --王国维
 “我从未拥有” --佚名
 ```
