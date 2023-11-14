@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一切力量皆有其代价，一千种权利伴随着一千种责任。 --钟离
+你充满了决心。 --佚名
 “我从未拥有” --佚名
 ```
