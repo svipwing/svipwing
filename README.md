@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逸一时，误一世。 --田所浩二
+一切力量皆有其代价，一千种权利伴随着一千种责任。 --钟离
 “我从未拥有” --佚名
 ```
