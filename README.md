@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你充满了决心。 --佚名
+请，好好的看着我！ --神里绫华
 “我从未拥有” --佚名
 ```
