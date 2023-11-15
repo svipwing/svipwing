@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今天的我们伤痕累累，但比起昨日，我们应该多少有所成长 --佚名
+无论是丢下还是被丢下，这两者都是一样痛苦的。 --佚名
 “我从未拥有” --佚名
 ```
