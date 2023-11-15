@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我从他的生命里消失，而他依然闪亮。 --网络
+不想前进的时候，就暂且停下脚步吧♪ --Elysia.
 “我从未拥有” --佚名
 ```
