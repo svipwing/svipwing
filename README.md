@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
+君知妾有夫，赠妾双明珠。 --张籍
 “我从未拥有” --佚名
 ```
