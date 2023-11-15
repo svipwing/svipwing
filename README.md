@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不想前进的时候，就暂且停下脚步吧♪ --Elysia.
+如果你执意追逐我的幻影，迟早会被真正的我打败。 --时光
 “我从未拥有” --佚名
 ```
