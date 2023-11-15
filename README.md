@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算风吹散了冰雪，想念也会留存下来。 --佚名
+免费的馈赠往往标明了无形的价格。 --亚亚努阿
 “我从未拥有” --佚名
 ```
