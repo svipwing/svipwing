@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-君知妾有夫，赠妾双明珠。 --张籍
+今天的我们伤痕累累，但比起昨日，我们应该多少有所成长 --佚名
 “我从未拥有” --佚名
 ```
