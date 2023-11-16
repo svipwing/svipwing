@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孩子，我愿意为你而前行。 --埃隆教官
+若是前生未有缘，待重结、来生愿。 --乐婉
 “我从未拥有” --佚名
 ```
