@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
+——什么是孤独？——心里明明空荡荡的，却什么也装不下。 --此账号已注销
 “我从未拥有” --佚名
 ```
