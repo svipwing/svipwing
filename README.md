@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个人都有一段悲伤，想隐藏却欲盖弥彰。 --张信哲
+现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
 “我从未拥有” --佚名
 ```
