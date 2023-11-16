@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-荒诞也好，愚笨也好，总会过去的。 --佚名
+每个人都有一段悲伤，想隐藏却欲盖弥彰。 --张信哲
 “我从未拥有” --佚名
 ```
