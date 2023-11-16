@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-取法于上，仅得为中；取法于中，故为其下。 --佚名
+慢慢来，谁还没有一个努力的过程。 --pony
 “我从未拥有” --佚名
 ```
