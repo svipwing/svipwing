@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-工欲善其事，必先利其器。 --佚名
+来人间一趟 你要看看太阳。 --薯味博饼
 “我从未拥有” --佚名
 ```
