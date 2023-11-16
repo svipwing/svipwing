@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-信言不美，美言不信。 --佚名
+孩子，我愿意为你而前行。 --埃隆教官
 “我从未拥有” --佚名
 ```
