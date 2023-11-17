@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对于真挚的爱意，我将永不争辩。 --linkey2011
+人非圣贤，孰能无过？过而能改，善莫大焉。 --佚名
 “我从未拥有” --佚名
 ```
