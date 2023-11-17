@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不论是过去还是未来，我都会保护你！ --凌崎飒
+人，只有在放弃战斗的时候才算输，只要坚持战斗，就还没输！ --佚名
 “我从未拥有” --佚名
 ```
