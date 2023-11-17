@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的人生没有彩排，每天都是现场直播。 --吕小布
+我可以孑然一身，但不能心无所属。 --呼呼呼呼兔
 “我从未拥有” --佚名
 ```
