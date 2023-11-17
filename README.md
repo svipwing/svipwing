@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-君子不器。 --孔子
+现在不是搞分裂的时候，恶魔与人类们，我们需要同心协力。 --魔王莉莉丝
 “我从未拥有” --佚名
 ```
