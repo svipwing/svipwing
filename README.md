@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跌跌撞撞的成长，又美又疼才是本质。 --夏达
+谁能让我开心，我就喜欢谁 --佚名
 “我从未拥有” --佚名
 ```
