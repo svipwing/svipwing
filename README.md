@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谁能让我开心，我就喜欢谁 --佚名
+我的人生没有彩排，每天都是现场直播。 --吕小布
 “我从未拥有” --佚名
 ```
