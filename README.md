@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-现在不是搞分裂的时候，恶魔与人类们，我们需要同心协力。 --魔王莉莉丝
+与君初相识，犹如故人归 --佚名
 “我从未拥有” --佚名
 ```
