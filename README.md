@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与君初相识，犹如故人归 --佚名
+不论是过去还是未来，我都会保护你！ --凌崎飒
 “我从未拥有” --佚名
 ```
