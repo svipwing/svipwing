@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若是前生未有缘，待重结、来生愿。 --乐婉
+对于真挚的爱意，我将永不争辩。 --linkey2011
 “我从未拥有” --佚名
 ```
