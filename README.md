@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人非圣贤，孰能无过？过而能改，善莫大焉。 --佚名
+跌跌撞撞的成长，又美又疼才是本质。 --夏达
 “我从未拥有” --佚名
 ```
