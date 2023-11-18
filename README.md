@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我想要说的，前人们都说过了。我想要做的，有钱人都做过了。 --草东没有派对
+The cake is a lie. --佚名
 “我从未拥有” --佚名
 ```
