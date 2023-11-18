@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-朋友之交，宜得删繁就简。 --佚名
+人总是害怕死亡，却殊不知有出生之时必有死亡之日。 --佚名
 “我从未拥有” --佚名
 ```
