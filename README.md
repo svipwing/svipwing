@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-求之不得，寤寐思服。悠哉悠哉，辗转反侧。 --佚名
+朋友之交，宜得删繁就简。 --佚名
 “我从未拥有” --佚名
 ```
