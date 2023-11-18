@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人总是害怕死亡，却殊不知有出生之时必有死亡之日。 --佚名
+时光会把你雕刻成你应有的样子。 --时光
 “我从未拥有” --佚名
 ```
