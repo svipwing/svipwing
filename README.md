@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-温柔正确的人总是难以生存，因为这世界既不温柔，也不正确。 --佚名
+这世界太大，勇敢的少年奔赴天涯。 --陈可心
 “我从未拥有” --佚名
 ```
