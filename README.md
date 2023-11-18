@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-军人天生就舍弃了战斗的意义！ --格拉汉姆
+我站在你左侧，却像隔着银河。 --五月天
 “我从未拥有” --佚名
 ```
