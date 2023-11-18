@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这世界太大，勇敢的少年奔赴天涯。 --陈可心
+军人天生就舍弃了战斗的意义！ --格拉汉姆
 “我从未拥有” --佚名
 ```
