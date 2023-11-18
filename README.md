@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-The cake is a lie. --佚名
+求之不得，寤寐思服。悠哉悠哉，辗转反侧。 --佚名
 “我从未拥有” --佚名
 ```
