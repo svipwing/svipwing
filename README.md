@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-时光会把你雕刻成你应有的样子。 --时光
+芝兰生于深林，不以无人而不芳；君子修道立德，不为穷困而改节。 --孔子
 “我从未拥有” --佚名
 ```
