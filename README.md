@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-喜欢上你，爱上你，真是太好了，谢谢。 --佚名
+忘掉生日，忘掉青涩的诗，忘掉他不厌其烦夜夜追逐他影子。 --邱意
 “我从未拥有” --佚名
 ```
