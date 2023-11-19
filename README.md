@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-知否，知否？应是绿肥红瘦。 --李清照
+我能唱歌，因为我并不孤单！ --澁谷香音
 “我从未拥有” --佚名
 ```
