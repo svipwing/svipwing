@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-芝兰生于深林，不以无人而不芳；君子修道立德，不为穷困而改节。 --孔子
+最怕一生碌碌无为，还安慰自己平凡可贵。 --佚名
 “我从未拥有” --佚名
 ```
