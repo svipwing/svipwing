@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-什么样的人都有，包括完美的人和完美的女人，只是你无缘遇到。 --刘慈欣
+春宵一刻值千金，花有清香月有阴。 --苏轼
 “我从未拥有” --佚名
 ```
