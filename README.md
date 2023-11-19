@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-忘掉生日，忘掉青涩的诗，忘掉他不厌其烦夜夜追逐他影子。 --邱意
+我们一路奋战，不是为了改变世界，而是为了不让世界改变我们。 --佚名
 “我从未拥有” --佚名
 ```
