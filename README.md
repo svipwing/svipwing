@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最怕一生碌碌无为，还安慰自己平凡可贵。 --佚名
+一定也有必须要去做的事吧？ --辛焱
 “我从未拥有” --佚名
 ```
