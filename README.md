@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-离离原上草，一岁一枯荣。 --白居易
+他乡纵有当头月，不及故乡一盏灯。 --闫浔
 “我从未拥有” --佚名
 ```
