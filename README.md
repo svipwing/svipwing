@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春宵一刻值千金，花有清香月有阴。 --苏轼
+离离原上草，一岁一枯荣。 --白居易
 “我从未拥有” --佚名
 ```
