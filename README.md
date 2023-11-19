@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们一路奋战，不是为了改变世界，而是为了不让世界改变我们。 --佚名
+每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
 “我从未拥有” --佚名
 ```
