@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所爱隔山海，山海不可平。 --littlesen
+让美丽的夜空带我们踏过平庸。 --南仁东
 “我从未拥有” --佚名
 ```
