@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-日出江花红胜火，春来江水绿如蓝。 --白居易
+每一天都可能会有刷新你世界观的事。 --佚名
 “我从未拥有” --佚名
 ```
