@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要保持希望在每天清晨太阳升起。 --佚名
+所爱隔山海，山海不可平。 --littlesen
 “我从未拥有” --佚名
 ```
