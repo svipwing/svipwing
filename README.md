@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让美丽的夜空带我们踏过平庸。 --南仁东
+爱若执炬迎风，炽烈而哀恸，诸般滋味皆在其中。 --银临
 “我从未拥有” --佚名
 ```
