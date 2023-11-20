@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-君埋泉下泥销骨，我寄人间雪满头。 --白居易
+要保持希望在每天清晨太阳升起。 --佚名
 “我从未拥有” --佚名
 ```
