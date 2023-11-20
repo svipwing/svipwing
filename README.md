@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哲学家们只是用不同的方式解释世界，而问题在于改变世界。 --马克思
+用伤害无辜者来掩盖自己的错误是心虚的体现，也永远掩盖不了。 --Hannah_AI
 “我从未拥有” --佚名
 ```
