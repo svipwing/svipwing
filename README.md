@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每一天都可能会有刷新你世界观的事。 --佚名
+君埋泉下泥销骨，我寄人间雪满头。 --白居易
 “我从未拥有” --佚名
 ```
