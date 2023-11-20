@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-以有涯随无涯，殆已！已而为知者，殆而已矣！ --庄周
+日出江花红胜火，春来江水绿如蓝。 --白居易
 “我从未拥有” --佚名
 ```
