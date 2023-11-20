@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-他乡纵有当头月，不及故乡一盏灯。 --闫浔
+以有涯随无涯，殆已！已而为知者，殆而已矣！ --庄周
 “我从未拥有” --佚名
 ```
