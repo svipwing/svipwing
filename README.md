@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让留下的人，笑着活下去 --佚名
+吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
 “我从未拥有” --佚名
 ```
