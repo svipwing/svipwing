@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-殷勤昨夜三更雨，又得浮生一日凉。 --苏轼
+这永远闪光的梦想，穿过每一个清晨，每一个不眠夜晚。 --佚名
 “我从未拥有” --佚名
 ```
