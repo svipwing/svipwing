@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-努力吧！就算再寂寞！也要努力活下去！ --炭治郎
+卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。 --杨戬
 “我从未拥有” --佚名
 ```
