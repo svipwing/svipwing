@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你能在浪费时间中获得乐趣，就不算浪费时间。 --罗素
+Stay hungry, Stay foolish. --史蒂夫-乔布斯
 “我从未拥有” --佚名
 ```
