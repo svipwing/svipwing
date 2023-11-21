@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-呐，做人呢，最重要的是开心，你饿不饿，我煮碗面给你吃啊。 --周星驰
+有些事情我不看透，不是我笨，只是我太善良。 --佚名
 “我从未拥有” --佚名
 ```
