@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人的痛苦会把自己折磨到多深呢？ --佚名
+殷勤昨夜三更雨，又得浮生一日凉。 --苏轼
 “我从未拥有” --佚名
 ```
