@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生まれた意味などなかった。 --まふまふ
+人的痛苦会把自己折磨到多深呢？ --佚名
 “我从未拥有” --佚名
 ```
