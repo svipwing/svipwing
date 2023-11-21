@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Stay hungry, Stay foolish. --史蒂夫-乔布斯
+生まれた意味などなかった。 --まふまふ
 “我从未拥有” --佚名
 ```
