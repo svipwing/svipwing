@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-是不是现在踏出这一步，下决定的是他。 --佚名
+努力吧！就算再寂寞！也要努力活下去！ --炭治郎
 “我从未拥有” --佚名
 ```
