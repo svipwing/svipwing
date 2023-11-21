@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
+呐，做人呢，最重要的是开心，你饿不饿，我煮碗面给你吃啊。 --周星驰
 “我从未拥有” --佚名
 ```
