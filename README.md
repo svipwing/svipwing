@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-卑鄙是卑鄙者的通行证，高尚是高尚者的墓志铭。 --杨戬
+如果你能在浪费时间中获得乐趣，就不算浪费时间。 --罗素
 “我从未拥有” --佚名
 ```
