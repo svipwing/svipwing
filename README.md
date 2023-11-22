@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不好意思，我喜欢的是艾米莉亚 --佚名
+天街小雨润如酥，草色遥看近却无。 --韩愈
 “我从未拥有” --佚名
 ```
