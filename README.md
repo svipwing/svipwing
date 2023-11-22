@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谎言重复一千遍就成了真理。 --戈培尔
+要发光，而不是被照亮。 --佚名
 “我从未拥有” --佚名
 ```
