@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-下坡路固然好走，可也许就再也上不来了。 --Enthon
+暴雨中前进，伞是倒划天空的船。 --佚名
 “我从未拥有” --佚名
 ```
