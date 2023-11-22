@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要发光，而不是被照亮。 --佚名
+你曾打马过银河，倒影一百光年长。 --李倦容
 “我从未拥有” --佚名
 ```
