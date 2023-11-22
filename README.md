@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你曾打马过银河，倒影一百光年长。 --李倦容
+钱塘依旧，潮生潮落。 --汪元量
 “我从未拥有” --佚名
 ```
