@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天街小雨润如酥，草色遥看近却无。 --韩愈
+未经审视的人生是不值得过的。 --苏格拉底
 “我从未拥有” --佚名
 ```
