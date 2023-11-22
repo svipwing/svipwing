@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些事情我不看透，不是我笨，只是我太善良。 --佚名
+下坡路固然好走，可也许就再也上不来了。 --Enthon
 “我从未拥有” --佚名
 ```
