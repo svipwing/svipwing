@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-定义虽然精确，现实极度模糊。 --佚名
+谎言重复一千遍就成了真理。 --戈培尔
 “我从未拥有” --佚名
 ```
