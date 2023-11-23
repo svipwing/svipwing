@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬，是距离了解最遥远的一种感情。 --佚名
+没有什么是一个滑稽解决不了的，如果有，那就两个！ --佚名
 “我从未拥有” --佚名
 ```
