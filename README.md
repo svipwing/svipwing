@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-夜月一帘幽梦，春风十里柔情。 --秦观
+故人一迁，如梦万载。 --月雩
 “我从未拥有” --佚名
 ```
