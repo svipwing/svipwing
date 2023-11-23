@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-魔非魔，道非道，善恶在人心。欲非欲，情非情，姻缘由天定。 --佚名
+岁寒，然后知松柏之后凋也。 --佚名
 “我从未拥有” --佚名
 ```
