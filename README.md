@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有什么是一个滑稽解决不了的，如果有，那就两个！ --佚名
+小楼昨夜又东风，故国不堪回首月明中。 --李煜
 “我从未拥有” --佚名
 ```
