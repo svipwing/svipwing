@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要是追不上光，那就变成光吧。 --小白想做你的唯一
+夜月一帘幽梦，春风十里柔情。 --秦观
 “我从未拥有” --佚名
 ```
