@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小楼昨夜又东风，故国不堪回首月明中。 --李煜
+不气盛能叫年轻人吗？ --刘华强
 “我从未拥有” --佚名
 ```
