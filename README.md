@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-明月装饰了你的窗子，你装饰了别人的梦。 --卞之琳
+憧憬，是距离了解最遥远的一种感情。 --佚名
 “我从未拥有” --佚名
 ```
