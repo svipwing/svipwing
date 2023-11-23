@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-钱塘依旧，潮生潮落。 --汪元量
+魔非魔，道非道，善恶在人心。欲非欲，情非情，姻缘由天定。 --佚名
 “我从未拥有” --佚名
 ```
