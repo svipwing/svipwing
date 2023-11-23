@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谎言重复一千遍就成了真理。 --戈培尔
+明月装饰了你的窗子，你装饰了别人的梦。 --卞之琳
 “我从未拥有” --佚名
 ```
