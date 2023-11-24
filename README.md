@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-叶底藏花一度，梦里踏雪几回。 --佚名
+富江有天使的脸孔，但其实她是个恶魔，不，恶魔也比她要好一点。 --伊藤润二
 “我从未拥有” --佚名
 ```
