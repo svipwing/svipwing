@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-再凶的男孩子，绑鞋带还不是要系蝴蝶结。 --佚名
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 ```
