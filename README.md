@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-富江有天使的脸孔，但其实她是个恶魔，不，恶魔也比她要好一点。 --伊藤润二
+别丧了，说不定你也是别人心中偷偷藏起来的光。 --一个可爱的人吧
 “我从未拥有” --佚名
 ```
