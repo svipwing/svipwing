@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那天，我听到了种子破土的声音，又细微又坚定。 --夏达
+眼睛是心灵的窗户。 --佚名
 “我从未拥有” --佚名
 ```
