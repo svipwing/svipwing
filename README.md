@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逸一时，误一世。 --田所浩二
+红颜未老恩先断，斜倚薰笼坐到明。 --白居易
 “我从未拥有” --佚名
 ```
