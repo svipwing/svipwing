@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-但使龙城飞将在，不教胡马度阴山。 --王昌龄
+自身拥有越丰富，他在别人身上所能发现得到的就越少。 --亚瑟・叔本华
 “我从未拥有” --佚名
 ```
