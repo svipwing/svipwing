@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孤独的人不会伤害别人，只会不断地伤害自己罢了。 --佚名
+但使龙城飞将在，不教胡马度阴山。 --王昌龄
 “我从未拥有” --佚名
 ```
