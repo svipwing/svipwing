@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自身拥有越丰富，他在别人身上所能发现得到的就越少。 --亚瑟・叔本华
+山重水复疑无路，柳暗花明又一村。 --陆游
 “我从未拥有” --佚名
 ```
