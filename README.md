@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山重水复疑无路，柳暗花明又一村。 --陆游
+再凶的男孩子，绑鞋带还不是要系蝴蝶结。 --佚名
 “我从未拥有” --佚名
 ```
