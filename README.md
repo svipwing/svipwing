@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
+实变函数学十遍，泛函学完心泛寒。 --佚名
 “我从未拥有” --佚名
 ```
