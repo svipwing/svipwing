@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跨越光年，归来任是你。 --佚名
+隔岸无旧情，姑苏有钟声。 --林夕
 “我从未拥有” --佚名
 ```
