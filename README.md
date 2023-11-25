@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-末将于禁，愿为曹家世代赴汤蹈火。 --佚名
+跨越光年，归来任是你。 --佚名
 “我从未拥有” --佚名
 ```
