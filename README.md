@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-泪锋之剑，当弃即弃。云裂之剑，当立则立。 --阿米娅
+总有一天你会笑着说出曾经令你痛苦的事情。 --佚名
 “我从未拥有” --佚名
 ```
