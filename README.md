@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-失去故土的花朵，回不去，却也离不开。 --夏达
+末将于禁，愿为曹家世代赴汤蹈火。 --佚名
 “我从未拥有” --佚名
 ```
