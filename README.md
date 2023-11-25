@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-科研成就的上限在于你的想象力。 --帆仔
+泪锋之剑，当弃即弃。云裂之剑，当立则立。 --阿米娅
 “我从未拥有” --佚名
 ```
