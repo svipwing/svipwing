@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+失去故土的花朵，回不去，却也离不开。 --夏达
 “我从未拥有” --佚名
 ```
