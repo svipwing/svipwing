@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山川同一色，浩若涉大荒。 --苏轼
+荷叶罗裙一色裁，芙蓉向脸两边开。 --王昌龄
 “我从未拥有” --佚名
 ```
