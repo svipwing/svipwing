@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恋爱本质不是走向婚姻，而是探究最真实的自己。 --佚名
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 ```
