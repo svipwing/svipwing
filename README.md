@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-永远不要熄灭心中的火，哪怕别人只看见烟。 --佚名
+山川同一色，浩若涉大荒。 --苏轼
 “我从未拥有” --佚名
 ```
