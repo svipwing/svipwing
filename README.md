@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-荷叶罗裙一色裁，芙蓉向脸两边开。 --王昌龄
+如果有来生，希望每次相遇，都能化为永恒。 --三毛
 “我从未拥有” --佚名
 ```
