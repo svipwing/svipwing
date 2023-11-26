@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有来生，希望每次相遇，都能化为永恒。 --三毛
+恋爱本质不是走向婚姻，而是探究最真实的自己。 --佚名
 “我从未拥有” --佚名
 ```
