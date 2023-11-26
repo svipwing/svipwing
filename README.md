@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逸一时，误一世。 --田所浩二
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 “我从未拥有” --佚名
 ```
