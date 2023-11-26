@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好好学习，天天向上。 --毛泽东
+如果惧怕前面跌宕的山岩，生命就永远只能是死水一潭。 --佚名
 “我从未拥有” --佚名
 ```
