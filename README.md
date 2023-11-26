@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔岸无旧情，姑苏有钟声。 --林夕
+好好学习，天天向上。 --毛泽东
 “我从未拥有” --佚名
 ```
