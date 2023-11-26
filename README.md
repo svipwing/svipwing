@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-回避现实的人，未来将更不理想 --佚名
+让我们开始我们的约会（战争）吧 --佚名
 “我从未拥有” --佚名
 ```
