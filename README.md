@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
+就是因为你不好，才要留在你身边，给你幸福。 --佚名
 “我从未拥有” --佚名
 ```
