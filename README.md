@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-知否，知否？应是绿肥红瘦。 --李清照
+不幸的是我们等了那么多年，幸运的我们那么多年过去还一直在一起 --佚名
 “我从未拥有” --佚名
 ```
