@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让我们开始我们的约会（战争）吧 --佚名
+“把剑放下，成为本王的妻子吧。” --佚名
 “我从未拥有” --佚名
 ```
