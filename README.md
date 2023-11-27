@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-嘿！活着是件很好的事 --佚名
+加油 --佚名
 “我从未拥有” --佚名
 ```
