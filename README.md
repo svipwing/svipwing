@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有情人终成眷属，没钱人亲眼目睹。 --快手评论
+知否，知否？应是绿肥红瘦。 --李清照
 “我从未拥有” --佚名
 ```
