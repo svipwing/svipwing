@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-“把剑放下，成为本王的妻子吧。” --佚名
+有些事情我不看透，不是我笨，只是我太善良。 --佚名
 “我从未拥有” --佚名
 ```
