@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就是因为你不好，才要留在你身边，给你幸福。 --佚名
+嘿！活着是件很好的事 --佚名
 “我从未拥有” --佚名
 ```
