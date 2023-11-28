@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你一世，我一世，要久要久，不要离！ --田所浩二
+记忆是痛苦的根源。 --周星驰
 “我从未拥有” --佚名
 ```
