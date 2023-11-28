@@ -19,6 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天高散孤云，落日澄空故乡影，飘摇游子心。 --万叶
+“你失去了”
+“我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
