@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-见过沧海桑田，望过白日飞升，走过拙山枯水，笑过月隐晦明。 --佚名
+你一世，我一世，要久要久，不要离！ --田所浩二
 “我从未拥有” --佚名
 ```
