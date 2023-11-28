@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆是痛苦的根源。 --周星驰
+天高散孤云，落日澄空故乡影，飘摇游子心。 --万叶
 “我从未拥有” --佚名
 ```
