@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-从容不迫的举止，比起咄咄逼人的态度，更能令人心折。 --三毛
+见过沧海桑田，望过白日飞升，走过拙山枯水，笑过月隐晦明。 --佚名
 “我从未拥有” --佚名
 ```
