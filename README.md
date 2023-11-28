@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最最好的，与最最痛苦的，是一样的。 --玛德莱娜
+最后再来做个约定吧。一定会再次与你相遇...... --夏彦深见
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
