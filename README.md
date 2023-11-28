@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+从容不迫的举止，比起咄咄逼人的态度，更能令人心折。 --三毛
 “我从未拥有” --佚名
 ```
