@@ -19,6 +19,6 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生于我，一场豪赌而已。 --刘慈欣
+趁着年轻，好好犯病。 --he
 “我从未拥有” --佚名
 ```
