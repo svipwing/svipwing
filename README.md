@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-“马孔多在下雨” --佚名
+慢也好，步伐小也罢，是往前走就好。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
