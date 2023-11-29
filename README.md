@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢也好，步伐小也罢，是往前走就好。 --佚名
+人生自是有情痴，此恨不关风与月。 --欧阳修
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
