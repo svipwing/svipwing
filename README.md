@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-明明就是喜欢，失去了才痛心，你在胆怯什么啊喂？ --流光印记
+跌跌撞撞的成长，又美又疼才是本质。 --夏达
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
