@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跌跌撞撞的成长，又美又疼才是本质。 --夏达
+容忍别人的一切错误 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
