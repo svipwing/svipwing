@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-容忍别人的一切错误 --佚名
+这瓜多少钱一斤？ --刘华强
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
