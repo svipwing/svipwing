@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生自是有情痴，此恨不关风与月。 --欧阳修
+行百里者半九十。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
