@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-旅程总有一天会迎来终点，不必匆忙。 --钟离
+比起自己的生命还要重要的东西，并不是这么好找的。 --潘丽宝·诺可·卡黛娜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
