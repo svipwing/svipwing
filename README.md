@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-比起自己的生命还要重要的东西，并不是这么好找的。 --潘丽宝·诺可·卡黛娜
+明明就是喜欢，失去了才痛心，你在胆怯什么啊喂？ --流光印记
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
