@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当漆黑一片，当光明灼眼，一样看不见。 --抱月
+老夫聊发少年狂，左牵黄，右擎苍。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
