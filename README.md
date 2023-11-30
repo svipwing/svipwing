@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为失去,所以明白。 --漩涡鸣人
+当漆黑一片，当光明灼眼，一样看不见。 --抱月
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
