@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-亲爱的，你的心在哪里？ --佚名
+因为失去,所以明白。 --漩涡鸣人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
