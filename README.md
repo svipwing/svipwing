@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若无闲事挂心头，便是人间好时节。 --佚名
+十代目的意志就是我们的意志！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
