@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-路过的熟悉，如同有你，已无转身的距离。 --佚名
+若无闲事挂心头，便是人间好时节。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
