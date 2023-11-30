@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-老夫聊发少年狂，左牵黄，右擎苍。 --苏轼
+眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
