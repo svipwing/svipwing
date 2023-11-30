@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-十代目的意志就是我们的意志！ --佚名
+隔岸无旧情，姑苏有钟声。 --林夕
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
