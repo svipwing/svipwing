@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Control is Power. --奥斯卡·辛德勒
+路过的熟悉，如同有你，已无转身的距离。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
