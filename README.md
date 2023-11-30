@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+喂，前面可是地狱啊！おい、この先は地狱だぜ！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
