@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-合抱之木，生于毫末；九层之台，起于累土；千里之行，始于足下。 --佚名
+Control is Power. --奥斯卡·辛德勒
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
