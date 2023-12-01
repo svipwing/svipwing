@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命璀璨而美丽，也因此困住了所有人。 --安迪尔
+信心这个东西，什么时候都像个高楼大厦，但是里面会长白蚁。 --王小波
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
