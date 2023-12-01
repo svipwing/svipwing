@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-即使天无雨，我亦留此地。 --佚名
+不可结缘 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
