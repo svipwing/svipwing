@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每一个不曾起舞的日子，都是对生活的辜负！ --尼采
+那双紧握不放的手…抓住的是希望…亦或是绝望… --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
