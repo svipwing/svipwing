@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-喂，前面可是地狱啊！おい、この先は地狱だぜ！ --佚名
+搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
