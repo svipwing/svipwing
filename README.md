@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
+你为了你的正义，我为了我的正义。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
