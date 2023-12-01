@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-关关雎鸠，在河之洲。窈窕淑女，君子好逑。 --佚名
+永远不要熄灭心中的火，哪怕别人只看见烟。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
