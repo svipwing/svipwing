@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那双紧握不放的手…抓住的是希望…亦或是绝望… --佚名
+心有猛虎，细嗅蔷薇。 --Siegfried Sassoon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
