@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-心有猛虎，细嗅蔷薇。 --Siegfried Sassoon
+生命璀璨而美丽，也因此困住了所有人。 --安迪尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
