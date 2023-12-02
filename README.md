@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-致梦想创造游戏的你，请绝对不要让这份情感在梦里终结。 --佚名
+上帝伸出了决定命运了手指，我拼死反抗，却也欣然接受。 --命运
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
