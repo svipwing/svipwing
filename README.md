@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-兼山艮，君子以思不出其位。 --佚名
+致梦想创造游戏的你，请绝对不要让这份情感在梦里终结。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
