@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成熟不是心变老，是泪在打转还能微笑。 --张韶涵
+连我自己都轻视自己的话，谁来夸奖我啊，只有我了，舍我其谁。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
