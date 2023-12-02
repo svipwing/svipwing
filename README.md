@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-上帝伸出了决定命运了手指，我拼死反抗，却也欣然接受。 --命运
+成熟不是心变老，是泪在打转还能微笑。 --张韶涵
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
