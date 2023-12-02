@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你的眼中，明暗交杂，一笑生花。 --米果
+人的一切痛苦，本质上都是对自己无能的愤怒。 --王小波
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
