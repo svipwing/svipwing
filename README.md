@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风一更，雪一更，聒碎乡心梦不成，故园无此声。 --纳兰性德
+你的眼中，明暗交杂，一笑生花。 --米果
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
