@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我乃死，我乃生。我为暗，我亦为光。 --佚名
+兼山艮，君子以思不出其位。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
