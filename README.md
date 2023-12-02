@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有逃不脱的厄难！如果有，那是因为还没找到那合理的理由！ --朴素
+我之所以想变强，是为了活得轻松写意。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
