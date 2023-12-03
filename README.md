@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬是距离理解最遥远的感情。 --佚名
+工程穷三代，考古毁一生。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
