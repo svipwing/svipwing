@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命不止，奋斗不息。 --佚名
+你会哭着笑，笑着哭，是因为你的心，早已超越了自己啊。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
