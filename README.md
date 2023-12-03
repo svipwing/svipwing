@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-少小离家老大回，乡音无改鬓毛衰。 --贺知章
+相思了无益，悔当初相见。 --朱彝尊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
