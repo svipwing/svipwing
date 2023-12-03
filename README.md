@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-江畔何人初见月？江月何年初照人？ --张若虚
+如果我们就这样死在山里面 他们会不会说我们是殉情 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
