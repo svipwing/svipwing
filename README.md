@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我们就这样死在山里面 他们会不会说我们是殉情 --佚名
+人的一切痛苦，本质上都是对自己无能的愤怒。 --王小波
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
