@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你会哭着笑，笑着哭，是因为你的心，早已超越了自己啊。 --佚名
+江畔何人初见月？江月何年初照人？ --张若虚
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
