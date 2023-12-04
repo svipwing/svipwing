@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+祈祷奇迹，其实不如无尽的练习。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
