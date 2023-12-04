@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-亲近你的朋友，但更要亲近你的敌人。 --佚名
+江南可采莲，莲叶何田田。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
