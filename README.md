@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对于我们的幸福来说，别人的看法在本质上来讲并不十分重要。 --叔本华
+其实我们每个人都是一座孤岛。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
