@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+人是要整活的——没活了，可不就是死了么？ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
