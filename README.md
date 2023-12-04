@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-错了就错了吧，一个做错的英雄，至少比什么都不做的笨蛋好。 --佚名
+亲近你的朋友，但更要亲近你的敌人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
