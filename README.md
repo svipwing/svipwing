@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-工程穷三代，考古毁一生。 --佚名
+群体只会干两件事，锦上添花或者落井下石。 --古斯塔夫·勒庞
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
