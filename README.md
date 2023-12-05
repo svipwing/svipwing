@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-既然没有终点，那在何处又何妨呢。 --佚名
+如果能摸摸我的头的话，我会很高兴的！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
