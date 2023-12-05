@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+比起想念来，千年又何其长。比起相见来，千年又何其短。 --褚嬴
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
