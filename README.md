@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-枯燥的太阳因你而变的温暖，脆弱的心灵因你而变的坚强。 --佚名
+有些人光是遇到就已经赚到了。 --赵紫骅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
