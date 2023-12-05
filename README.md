@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果能摸摸我的头的话，我会很高兴的！ --佚名
+遗忘比绝望更强有力。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
