@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-比起想念来，千年又何其长。比起相见来，千年又何其短。 --褚嬴
+若是你所期望的，那定会得到强烈的回应。 --米津玄师
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
