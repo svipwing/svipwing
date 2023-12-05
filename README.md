@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
+极霸矛，湘阿痕响啊。 --王爷
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
