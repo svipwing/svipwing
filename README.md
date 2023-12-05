@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-极霸矛，湘阿痕响啊。 --王爷
+既然没有终点，那在何处又何妨呢。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
