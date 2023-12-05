@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-遗忘比绝望更强有力。 --叔本华
+枯燥的太阳因你而变的温暖，脆弱的心灵因你而变的坚强。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
