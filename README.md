@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若是你所期望的，那定会得到强烈的回应。 --米津玄师
+你知不知道，难做的事和应该做的事，往往是同一件事。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
