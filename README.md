@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你知不知道，难做的事和应该做的事，往往是同一件事。 --佚名
+与众不同的生活方式很累人呢，因为找不到借口。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
