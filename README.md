@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-云中谁寄锦书来，雁字回时，月满西楼。 --李清照
+我们终此一生，就是要摆脱他人的期待，找到真正的自己。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
