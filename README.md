@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-绿树阴浓夏日长，楼台倒影入池塘。 --高骈
+广厦千间，夜眠仅需六尺；家财万贯，日食不过三餐。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
