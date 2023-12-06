@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
+天阶夜色凉如水，卧看牵牛织女星。 --杜牧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
