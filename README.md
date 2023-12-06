@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-广厦千间，夜眠仅需六尺；家财万贯，日食不过三餐。 --佚名
+云中谁寄锦书来，雁字回时，月满西楼。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
