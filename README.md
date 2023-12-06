@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与众不同的生活方式很累人呢，因为找不到借口。 --佚名
+回首某个瞬间，下个瞬间即告消逝。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
