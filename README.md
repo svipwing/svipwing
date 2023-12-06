@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-经过上千年的修炼，你学到的就是这个吗？ --神龙许愿
+实变函数学十遍，泛函学完心泛寒。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
