@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-回首某个瞬间，下个瞬间即告消逝。 --佚名
+经过上千年的修炼，你学到的就是这个吗？ --神龙许愿
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
