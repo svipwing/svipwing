@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天阶夜色凉如水，卧看牵牛织女星。 --杜牧
+绿树阴浓夏日长，楼台倒影入池塘。 --高骈
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
