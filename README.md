@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-神即道，道即法，道法自然，如来。 --豆豆
+めまぐるしい景色の中,君だけが止まって見えた. --野田洋次郎
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
