@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一切真实与虚假，一切辉煌与破灭，只存后人之言，只存岁月之中。 --耳根
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
