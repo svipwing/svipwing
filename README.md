@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-钟表走着同样的节拍，夜晚缀着同一簇星星。 --加西亚·洛尔迦
+这个世界上没有忽然崩溃的感情，只有压弯骆驼的最后一根稻草。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
