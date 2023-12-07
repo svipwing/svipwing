@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我无法参加你的派对，因为我沉迷在自己的世界。 --佚名
+台下人走过，不见旧颜色。 --等什么君
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
