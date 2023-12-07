@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要能努力，就应当去努力；只要还能前进，就要向前走去。 --佚名
+人总是贪婪的，就像最开始，我也只是想知道你的名字。 --新海诚
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
