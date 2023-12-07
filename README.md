@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们终此一生，就是要摆脱他人的期待，找到真正的自己。 --佚名
+钟表走着同样的节拍，夜晚缀着同一簇星星。 --加西亚·洛尔迦
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
