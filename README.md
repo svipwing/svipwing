@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个世界上没有忽然崩溃的感情，只有压弯骆驼的最后一根稻草。 --佚名
+一点寒芒先到，随后枪出如龙。 --赵信
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
