@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-台下人走过，不见旧颜色。 --等什么君
+神即道，道即法，道法自然，如来。 --豆豆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
