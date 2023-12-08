@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-走路太骚必摔跤，得瑟过劲会闪腰。 --佚名
+总有一天你会笑着说出曾经令你痛苦的事情。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
