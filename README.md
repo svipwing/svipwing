@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-めまぐるしい景色の中,君だけが止まって見えた. --野田洋次郎
+败者死于绝望，胜者死于渴望。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
