@@ -19,7 +19,8 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-冬天之所以那么冷是为了告诉大家身边人的温暖有多重要。 --孔枝泳
+“你失去了”
+“我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
