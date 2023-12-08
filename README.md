@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要让一群人团结起来，需要的不是英明的领导，而是共同的敌人。 --佚名
+冬天之所以那么冷是为了告诉大家身边人的温暖有多重要。 --孔枝泳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
