@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-I will always be here for you. --佚名
+要让一群人团结起来，需要的不是英明的领导，而是共同的敌人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
