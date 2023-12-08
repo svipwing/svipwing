@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总有一天你会笑着说出曾经令你痛苦的事情。 --佚名
+I will always be here for you. --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
