@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人类最高级别的安慰，就是理解别人的痛苦，并陪伴他。 --佚名
+走路太骚必摔跤，得瑟过劲会闪腰。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
