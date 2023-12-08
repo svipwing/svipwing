@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这长江天险后，便是江东铁壁。 --界徐盛
+被风吹散的思念，卷起不羁的时间。 --一个无归期的人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
