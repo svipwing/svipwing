@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有情人终成眷属，没钱人亲眼目睹。 --快手评论
+人类最高级别的安慰，就是理解别人的痛苦，并陪伴他。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 ```
