@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当世界背叛你的那天到来时，我会为你背叛全世界。 --佚名
+我在最没有能力的年纪，遇见了最想照顾一生的人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
