@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管你说再多的慌，只有自己的内心，是无法欺骗的啊。 --佚名
+恋爱本质不是走向婚姻，而是探究最真实的自己。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
