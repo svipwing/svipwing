@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望我们都能像对方一样勇敢。 --巫哲
+看春花开又落,秋风吹着那夏月走,冬雪纷纷又是一年 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
