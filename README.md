@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-看春花开又落,秋风吹着那夏月走,冬雪纷纷又是一年 --佚名
+生命中曾经有过的所有灿烂，原来终究，都需要用寂寞来偿还。 --马尔克斯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
