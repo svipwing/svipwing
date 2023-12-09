@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-牛高达可不只是好看而已! --佚名
+从来不会生气的人，注定终生遭受欺凌和压制，直至被摧毁和消灭。 --M·斯科特·派克
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
