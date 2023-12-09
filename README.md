@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今天的雨很大，你那边下雨了么？ --佚名
+希望我们都能像对方一样勇敢。 --巫哲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
