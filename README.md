@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有回忆就去创造回忆，没有道路就去开辟道路。 --佚名
+乱山残雪夜，孤烛异乡人。 --崔涂
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
