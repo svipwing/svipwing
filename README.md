@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-MAKE OUR DREAMS ALIVE --佚名
+努力吧！就算再寂寞！也要努力活下去！ --炭治郎
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
