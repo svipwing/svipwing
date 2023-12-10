@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当遇到你时，大脑连上CSGO都会掉帧。 --Florence
+自信起来，你能做到任何事。 --HONTARG
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
