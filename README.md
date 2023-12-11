@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今天也怀着春天即将来访的预感，仰望着冬天的回忆。 --佚名
+互联网时代的悲哀就是让你知道了皇帝的生活，而你只是个佃户。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
