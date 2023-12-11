@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-马踏祁连山河动，兵起玄黄奈何天！ --神马超
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
