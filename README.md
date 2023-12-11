@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-乃知一死生为虚诞，齐彭殇为妄作。 --王羲之
+外卖堵了，是因为红灯多；感情堵了，是因为「绿」灯多。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
