@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-互联网时代的悲哀就是让你知道了皇帝的生活，而你只是个佃户。 --佚名
+看看人间的苦难，听听人民的呐喊！ --《悲惨世界》音乐剧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
