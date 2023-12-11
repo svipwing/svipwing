@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
+乃知一死生为虚诞，齐彭殇为妄作。 --王羲之
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
