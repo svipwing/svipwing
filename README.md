@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-“你失去了”
+阶砖不会拒绝磨蚀，窗花不可幽禁落霞。 --黄伟文
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
