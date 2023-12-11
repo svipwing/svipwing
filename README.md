@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-外卖堵了，是因为红灯多；感情堵了，是因为「绿」灯多。 --佚名
+今天也怀着春天即将来访的预感，仰望着冬天的回忆。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
