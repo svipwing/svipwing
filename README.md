@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宽容是一种典型的傲慢。 --决明
+很多事只是最初看起来有意义，但经过多次重复就慢慢失去了意义。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
