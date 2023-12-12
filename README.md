@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像开始的那个点，一切都是命中注定。 --Saliva
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
