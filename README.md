@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要太小看人类了！ --佚名
+如果不想受伤，请远离带来伤害的所有事物！ --心殇
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
