@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这是在是我所知物理学中最富诗意的东西：你的一切都是星辰。 --佚名
+就像开始的那个点，一切都是命中注定。 --Saliva
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
