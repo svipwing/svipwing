@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-三十年河东，三十年河西 --佚名
+哲学家们只是用不同的方式解释世界，而问题在于改变世界。 --马克思
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
