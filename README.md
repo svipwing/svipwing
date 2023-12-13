@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不愿勾起相思，不敢出门看月；偏偏月进窗来，害我相思一夜。 --胡适
+因为失去,所以明白。 --漩涡鸣人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
