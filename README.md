@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
