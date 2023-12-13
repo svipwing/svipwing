@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人总是贪婪的，就像最开始，我也只是想知道你的名字。 --新海诚
+隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
