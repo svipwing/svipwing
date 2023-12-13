@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为失去,所以明白。 --漩涡鸣人
+这是他替你起的名字，执掌江山，定波安澜，他会看着你。 --三千大梦叙平生
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
