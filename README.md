@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果不想受伤，请远离带来伤害的所有事物！ --心殇
+当一束光照进黑暗，那就有罪，但如果这束光不离开，那便是救赎。 --青春杂货铺
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
