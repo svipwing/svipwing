@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相信爱的人，才会和爱相遇 --佚名
+腾龙飞鳞，虽寿比山岳，终为土灰。 --送仙典仪讣告
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
