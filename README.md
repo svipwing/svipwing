@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-内心湛然，则无往而不乐。 --梁实秋先生
+虎狼在外，不敢不殚精竭虑；山河未定，也不敢轻贱其身。 --priest
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
