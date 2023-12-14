@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算是堕落浪子，也能力挽狂澜。 --方绪
+仰天大笑出门去，我辈岂是蓬蒿人。 --李白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
