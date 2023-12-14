@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-仰天大笑出门去，我辈岂是蓬蒿人。 --李白
+我的名字，是奥里。 --奥里
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
