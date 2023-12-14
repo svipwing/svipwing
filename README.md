@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-腾龙飞鳞，虽寿比山岳，终为土灰。 --送仙典仪讣告
+希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
