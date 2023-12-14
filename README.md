@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个女孩知道了怎么去模仿女人，并不代表她真的准备好做女人了。 --海莉
+内心湛然，则无往而不乐。 --梁实秋先生
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
