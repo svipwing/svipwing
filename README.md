@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-远离亲人，我很遗憾，但这是我不得不做的事情。 --刘培强
+风吹柳叶遮黄雀，薄翅不觉已落蝉。 --李落蝉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
