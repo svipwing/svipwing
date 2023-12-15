@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当你足够期待失望时，你就永远不会失望。 --MJ
+人总是贪婪的，就像最开始，我也只是想知道你的名字。 --新海诚
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
