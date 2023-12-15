@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风吹柳叶遮黄雀，薄翅不觉已落蝉。 --李落蝉
+花开花落，再灿烂的星光也会消失。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
