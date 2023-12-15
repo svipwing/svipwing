@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-善与恶逆转的瞬间，便是奇迹 --佚名
+真正要分开的两个人，连“分手”二字都是多余的，因为殊途同归。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
