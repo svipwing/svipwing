@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么我眼睛一睁开，你就不是我的了。 --寂落白
+善与恶逆转的瞬间，便是奇迹 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
