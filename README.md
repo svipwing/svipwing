@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人总是贪婪的，就像最开始，我也只是想知道你的名字。 --新海诚
+为什么我眼睛一睁开，你就不是我的了。 --寂落白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
