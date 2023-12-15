@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-保持好迎接强者的心态，才是初心 --佚名
+我要赢一壶酒，拿来娶你。 --巫哲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
