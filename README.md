@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虎狼在外，不敢不殚精竭虑；山河未定，也不敢轻贱其身。 --priest
+当你足够期待失望时，你就永远不会失望。 --MJ
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
