@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生真是讽刺，一个人竟然可以变成自己曾经最讨厌的样子。 --佚名
+不要熄灭你的灵感及想象，不要成为你楷模的奴隶。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
