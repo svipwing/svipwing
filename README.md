@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要熄灭你的灵感及想象，不要成为你楷模的奴隶。 --佚名
+程序漏洞叫特性，设计漏洞叫特色 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
