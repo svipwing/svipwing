@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-程序漏洞叫特性，设计漏洞叫特色 --佚名
+不气盛能叫年轻人吗？ --刘华强
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
