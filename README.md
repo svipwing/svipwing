@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-到头来，我们记住的，不是敌人的攻击，而是朋友的沉默。 --佚名
+人生真是讽刺，一个人竟然可以变成自己曾经最讨厌的样子。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
