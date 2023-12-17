@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-嘴里塞满无知的梦想，醉了就吐一地闪光。 --快乐放屁小狗
+我希望兜兜转转之后那个人还是你。 --不要半夜躲在被子里哭了
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
