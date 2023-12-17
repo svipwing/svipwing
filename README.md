@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-I will always be here for you. --佚名
+如果我变得更强，就能帮上忙了吗？ --冥界使者哈娜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
