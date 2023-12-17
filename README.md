@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我变得更强，就能帮上忙了吗？ --冥界使者哈娜
+实变函数学十遍，泛函学完心泛寒。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
