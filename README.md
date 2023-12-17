@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个会用风筝向你写出“我想你”的女孩，真让人永远都忘不了她。 --佚名
+I will always be here for you. --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
