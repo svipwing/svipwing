@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天生我材必有用，千金散尽还复来。 --李白
+我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
