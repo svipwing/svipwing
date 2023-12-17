@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
+不肯迈出第一步的人永远学不会走路，也无法体会奔跑的喜悦！ --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
