@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我希望兜兜转转之后那个人还是你。 --不要半夜躲在被子里哭了
+最初的鸟儿是不会飞翔的，飞翔是它们勇敢跃入峡谷的奖励。 --安柏
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
