@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一定要像小孩子一样爱笑，眼睛一定要闪着不谙世事的光。 --佚名
+迟日江山丽，春风花草香。 --杜甫
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
