@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-撸起袖子加油干。 --佚名
+不管风吹浪打，胜似闲庭信步。 --毛泽东
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
