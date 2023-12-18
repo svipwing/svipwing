@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今后无论发生什么事也好，这个左手上的⋯⋯都是同伴的记号！ --尾田荣一郎
+不诱于誉，不恐于诽。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
