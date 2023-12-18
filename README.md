@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-迟日江山丽，春风花草香。 --杜甫
+酒可以不飲，醉豈能不醉？ --扎西拉姆多多
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
