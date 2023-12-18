@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-酒可以不飲，醉豈能不醉？ --扎西拉姆多多
+别丧了，说不定你也是别人心中偷偷藏起来的光。 --一个可爱的人吧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
