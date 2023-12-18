@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-西方人并不比东方人聪明，但是他们却找对了路。 --佚名
+如果预计中的不幸没有发生的话，我们就会收获意外的喜悦。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
