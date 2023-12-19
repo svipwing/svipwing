@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一举一动，都是承诺，会被另一个人看在眼里，记在心上的。 --佚名
+自满必定失败，骄傲必定后悔。 --路法
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
