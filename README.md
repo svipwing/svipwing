@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生老病死，八苦之四，众生必经，江澄亦是。 --佚名
+明月也不曾记得它点亮过世界！ --皓月
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
