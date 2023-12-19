@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+让时钟就此冰冻，让我们在无尽的时光里紧紧相拥。 --一只叫一行的喵
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
