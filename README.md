@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生而为人，我很抱歉 --佚名
+引领天下之情怀，引领创新之力量，引领艺趣之格调。 --嘉兴一中实验学校
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
