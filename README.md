@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宇宙是蚂蚁的梦。 --佚名
+如果你能在浪费时间中获得乐趣，就不算浪费时间。 --罗素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
