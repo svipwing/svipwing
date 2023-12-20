@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天涯咫尺或不及，江湖方寸在此间。 --解牵年
+看看人间的苦难，听听人民的呐喊！ --《悲惨世界》音乐剧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
