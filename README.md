@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+天涯咫尺或不及，江湖方寸在此间。 --解牵年
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
