@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-时间是伟大的作家，总会写下完美的结局。 --佚名
+曾与美人桥上别，恨无消息到今朝。 --刘禹锡
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
