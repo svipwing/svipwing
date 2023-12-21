@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恰沐春风共同游，终只叹，木已舟。 --佚名
+没有人的文明毫无意义。 --马兆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
