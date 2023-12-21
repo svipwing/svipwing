@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
+永远不要活在过去的回忆里；昨天的太阳，晒不干今天的衣裳！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
