@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-永远不要活在过去的回忆里；昨天的太阳，晒不干今天的衣裳！ --佚名
+人到情多情转薄，而今真个不多情。 --纳兰性德
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
