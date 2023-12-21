@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自杀是没有理由的，只是今天没有飞起来罢了。 --佚名
+哦~我的老伙计，祝你度过有意义的一天~! --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
