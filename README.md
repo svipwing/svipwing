@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-红尘往事付流水，忘尽俗缘始得真，一饮而尽，再醉千年 --佚名
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
