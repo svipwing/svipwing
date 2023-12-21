@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人到情多情转薄，而今真个不多情。 --纳兰性德
+我有故人抱剑去，斩尽春风未曾归。 --鸾歌
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
