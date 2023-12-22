@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-纵使天光终将熄灭，我们也要歌颂太阳。 --巴尔蒙特
+爱与友情以及勇气改变不了一个人，只有受伤才能让人成长。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
