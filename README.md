@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-黑暗的环境容易做错事。 --某中学数学老师
+生当作人杰，死亦为鬼雄。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
