@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有人的文明毫无意义。 --马兆
+如此生活30年，直到大厦崩塌。 --万能青年旅店
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
