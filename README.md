@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-请你,驯养我吧 --佚名
+黑暗的环境容易做错事。 --某中学数学老师
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
