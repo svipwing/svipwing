@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有情人终成眷属，没钱人亲眼目睹。 --快手评论
+要超越过去与悲伤，用坚强和笑容去开拓明天。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
