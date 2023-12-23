@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-努力吧！就算再寂寞！也要努力活下去！ --炭治郎
+祈祷奇迹，其实不如无尽的练习。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
