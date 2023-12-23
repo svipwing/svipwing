@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-对于事情的预期越低，失败的时候越不伤心，成功的时候就越快乐。 --TPSET
+百骑劫魏营，功震天下英。 --神甘宁
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
