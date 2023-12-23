@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当遇到你时，大脑连上CSGO都会掉帧。 --Florence
+两个人从监狱的窗户往外看，一个看见了土地，一个看见了星星。 --空条徐伦
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
