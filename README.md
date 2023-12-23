@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生若只如初见，何事秋风悲画扇。 --佚名
+对于事情的预期越低，失败的时候越不伤心，成功的时候就越快乐。 --TPSET
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
