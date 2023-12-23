@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要超越过去与悲伤，用坚强和笑容去开拓明天。 --佚名
+偶尔的停顿和修整，对于人生是非常必要的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
