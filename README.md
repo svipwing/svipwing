@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-祈祷奇迹，其实不如无尽的练习。 --佚名
+如果你能在浪费时间中获得乐趣，就不算浪费时间。 --罗素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
