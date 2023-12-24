@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一寸相思千万绪。人间没个安排处。 --李冠
+孩子，我愿意为你而前行。 --埃隆教官
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
