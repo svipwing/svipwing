@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
+想一个人有多想念，那又是文字失效瞬间。 --五月天
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
