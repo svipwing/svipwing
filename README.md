@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-团结，勇气和绝不动摇的忠诚是人类最大的优点！ --十六椰子
+恋爱不是谈出来的，而是陷进去的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
