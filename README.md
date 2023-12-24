@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生まれた意味などなかった。 --まふまふ
+一寸相思千万绪。人间没个安排处。 --李冠
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
