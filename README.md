@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-保持热爱，奔赴山海。 --佚名
+生まれた意味などなかった。 --まふまふ
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
