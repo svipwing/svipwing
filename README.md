@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生当复来归，死当长相思。 --佚名
+渐行渐远渐无书，水阔鱼沉何处问。 --欧阳修
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
