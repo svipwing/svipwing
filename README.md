@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-多少岁月与轻狂交织的梦，被遗忘在大海的尽头，随时光匆匆流去。 --佚名
+アートは最高です！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
