@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-极光总会有，并肩于雪山之巅。 --佚名
+梦与现实是不同的。所以才能够为了把梦变成现实而努力。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
