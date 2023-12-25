@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-渐行渐远渐无书，水阔鱼沉何处问。 --欧阳修
+极光总会有，并肩于雪山之巅。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
