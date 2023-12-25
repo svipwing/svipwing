@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生，一半是现实，一半是梦想。一念花开，一念花落。 --佚名
+生活不止眼前的苟且，还应该有诗和远方的田野。 --许巍
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
