@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活不止眼前的苟且，还应该有诗和远方的田野。 --许巍
+对于真挚的爱意，我将永不争辩。 --linkey2011
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
