@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今天也要开心哟~ --佚名
+我真的是high到不行啊！ --Dio
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
