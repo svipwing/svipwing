@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-钱塘依旧，潮生潮落。 --汪元量
+认真的思索，真诚的明辨是非，有这种态度，大概可算是善良吧。 --王小波
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
