@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哲学的基本问题是思维和存在的关系问题。 --佚名
+皑如山上雪，皎若云间月。 --卓文君
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
