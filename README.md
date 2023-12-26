@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬，是距离了解最遥远的一种感情。 --佚名
+钱塘依旧，潮生潮落。 --汪元量
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
