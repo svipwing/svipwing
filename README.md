@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-认真的思索，真诚的明辨是非，有这种态度，大概可算是善良吧。 --王小波
+未期之遇，不告而别。闻所闻而来，见所见即去。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
