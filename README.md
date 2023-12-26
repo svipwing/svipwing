@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-别人看见的只有你的光鲜亮丽，他们永远不知道你失去了什么。 --意难藏
+憧憬，是距离了解最遥远的一种感情。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
