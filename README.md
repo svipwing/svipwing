@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当人们做不到一些事情的时候，他们会对你说你也同样不能。 --克里斯·加德纳
+现在的我，一定是世界上最幸福的女孩子。 --珂朵莉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
