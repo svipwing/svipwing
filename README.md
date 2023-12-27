@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-南风知我意，吹梦到西洲。 --佚名
+我想在你眼里撒野奔跑，我想一个眼神就到老。 --巫哲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
