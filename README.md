@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿风指引着你的道路，愿你的刀刃永远锋利。 --佚名
+就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
