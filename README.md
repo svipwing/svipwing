@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
+时间是存在者的时间。 --海德格尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
