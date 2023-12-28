@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-彩虹不只是天上才有，也可以在心中架起。 --佚名
+祈祷奇迹，其实不如无尽的练习。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
