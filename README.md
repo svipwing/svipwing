@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-男人就应该保持冷静，沸腾的水只会被蒸发掉。 --佚名
+最最好的，与最最痛苦的，是一样的。 --玛德莱娜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
