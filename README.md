@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真一郎的鞋里有蟑螂，真一郎的心里是——汤浅比吕美。 --石动乃绘
+彩虹不只是天上才有，也可以在心中架起。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
