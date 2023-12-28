@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-叶底藏花一度，梦里踏雪几回。 --佚名
+以有涯随无涯，殆已！已而为知者，殆而已矣！ --庄周
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
