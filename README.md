@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-祈祷奇迹，其实不如无尽的练习。 --佚名
+有些人光是遇到就已经赚到了。 --赵紫骅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
