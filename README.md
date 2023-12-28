@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猿粪和狗屎其实是一类东西，这个你知道的吧。 --佚名
+如果一开始就是一种错误，那么为什么，它会错的那样美丽。 --席慕蓉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
