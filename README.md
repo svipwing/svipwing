@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有任何人有资格剥夺他人的愿望，即便是「神」也不行。 --万叶
+掉头一去是风吹黑发，回首再来已雪满白头。 --余光中
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
