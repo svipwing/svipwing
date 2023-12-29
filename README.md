@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喜欢了你十年，却用一整个四月编织了一个不爱你的谎言。 --佚名
+千篇一律的面具背后尽是伪善的人心。 --夜杏
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
