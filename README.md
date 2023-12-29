@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-痛苦着痛苦着，满脑子只能想我的事。 --佚名
+没有任何人有资格剥夺他人的愿望，即便是「神」也不行。 --万叶
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
