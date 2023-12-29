@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我觉得这个世上这么多人，可是没有人想听我讲话。 --佚名
+我喜欢了你十年，却用一整个四月编织了一个不爱你的谎言。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
