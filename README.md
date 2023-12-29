@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-千篇一律的面具背后尽是伪善的人心。 --夜杏
+无论现在多么的不开心，你要相信，明天会比今天更好。 --东野圭吾
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
