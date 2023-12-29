@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
+I see the player you mean. --Julian Gough
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
