@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-正因为听不见和看不到，所以风子才会做这样的事情。 --风子
+只恐双溪舴艋舟，载不动许多愁。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
