@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-越想贴近事实，不明白的事情就越多。 --法斯
+苟利国家生死以，岂因祸福避趋之 --林则徐
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
