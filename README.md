@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我躺在黑暗里用血丝赤红的眼看每一个凌晨的灿红初阳。 --食取
+相逢尽道休官好，林下何曾见一人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
