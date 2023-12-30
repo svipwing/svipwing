@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个世界上没有忽然崩溃的感情，只有压弯骆驼的最后一根稻草。 --佚名
+越想贴近事实，不明白的事情就越多。 --法斯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
