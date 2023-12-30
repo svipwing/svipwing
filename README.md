@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你为了你的正义，我为了我的正义。 --佚名
+我躺在黑暗里用血丝赤红的眼看每一个凌晨的灿红初阳。 --食取
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
