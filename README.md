@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-荷尔蒙决定一见钟情，多巴胺决定天长地久。 --不自爱里迷失
+君埋泉下泥销骨，我寄人间雪满头。 --白居易
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
