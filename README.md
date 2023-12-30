@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-握不住的沙，不如扬了它。 --佚名
+正因为听不见和看不到，所以风子才会做这样的事情。 --风子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
