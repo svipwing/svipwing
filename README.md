@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-雁过拔毛，兽走留皮。涂山，我罩的，懂？ --佚名
+持道而修，不可议其。 --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
