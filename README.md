@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-君埋泉下泥销骨，我寄人间雪满头。 --白居易
+自童年起，我便独自一人，照顾着历代星辰。 --白鹤林
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
