@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自童年起，我便独自一人，照顾着历代星辰。 --白鹤林
+莫道不销魂，帘卷西风，人比黄花瘦。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
