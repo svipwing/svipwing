@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-莫道不销魂，帘卷西风，人比黄花瘦。 --李清照
+雁过拔毛，兽走留皮。涂山，我罩的，懂？ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
