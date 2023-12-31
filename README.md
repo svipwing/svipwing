@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-仗剑救一人，从文万事休。闻鸡两起舞，一死一白头。 --无心
+你在颓废的时候别人都在努力哦~? --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
