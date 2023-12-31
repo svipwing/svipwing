@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你在颓废的时候别人都在努力哦~? --佚名
+军人天生就舍弃了战斗的意义！ --格拉汉姆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
