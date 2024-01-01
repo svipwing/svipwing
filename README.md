@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我无杀虎心，虎有杀人意。 --佚名
+隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
