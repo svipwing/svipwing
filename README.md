@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-她轻轻唱起来宛如天籁，让我的梦似翅膀心似海。 --关山
+自信起来，你能做到任何事。 --HONTARG
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
