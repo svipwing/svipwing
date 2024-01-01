@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-神即道，道即法，道法自然，如来。 --豆豆
+我们的学生会长，比高达还强。 --春风千樱
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
