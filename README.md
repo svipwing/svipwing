@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们的学生会长，比高达还强。 --春风千樱
+平生不会相思，才会相思，便害相思。 --徐再思
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
