@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-平生不会相思，才会相思，便害相思。 --徐再思
+她轻轻唱起来宛如天籁，让我的梦似翅膀心似海。 --关山
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
