@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-暴雨中前进，伞是倒划天空的船。 --佚名
+想一个人有多想念，那又是文字失效瞬间。 --五月天
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
