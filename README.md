@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些人光是遇到就已经赚到了。 --赵紫骅
+小时候怕鬼，因为他们面目狰狞；长大后怕人，因为他们衣冠楚楚。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
