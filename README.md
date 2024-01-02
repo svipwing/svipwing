@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-以前喜欢一个人，现在喜欢一个人。 --QQ音乐用户
+伤心桥下春波绿，曾是惊鸿照影来。 --陆游
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
