@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆不是我的延续。精神才是。 --pokon548
+知否，知否？应是绿肥红瘦。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
