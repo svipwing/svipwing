@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-得之我幸，失之我命。 --佚名
+春色满园关不住，一枝红杏出墙来。 --叶绍翁
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
