@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-是你赢了...哲... --青峰大辉
+以前喜欢一个人，现在喜欢一个人。 --QQ音乐用户
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
