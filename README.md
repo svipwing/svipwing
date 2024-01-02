@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小时候怕鬼，因为他们面目狰狞；长大后怕人，因为他们衣冠楚楚。 --佚名
+纵使黑云蔽日，我也要燃烧天空，带你找到回家的路。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
