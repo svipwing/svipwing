@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-春色满园关不住，一枝红杏出墙来。 --叶绍翁
+有些人光是遇到就已经赚到了。 --赵紫骅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
