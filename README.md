@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我有一个梦，也许有一天，灿烂的阳光能照进黑暗森林。 --佚名
+人类侥幸拥有了智慧，就应该善用它。 --王小波
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
