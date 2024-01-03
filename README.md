@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-伤心桥下春波绿，曾是惊鸿照影来。 --陆游
+我做着我想要做到的事情，有人欣赏我的自信，也有人说我普信。 --MYR
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
