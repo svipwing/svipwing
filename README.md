@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我做着我想要做到的事情，有人欣赏我的自信，也有人说我普信。 --MYR
+——什么是孤独？——心里明明空荡荡的，却什么也装不下。 --此账号已注销
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
