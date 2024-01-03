@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我今天就是要带她走，我看哪个敢拦我。 --佚名
+我有一个梦，也许有一天，灿烂的阳光能照进黑暗森林。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
