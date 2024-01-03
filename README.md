@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆，总会传承下去，无论是用何种方式。 --The New Order:Last Days of Europe
+如果可以，愿来生你不要忘记我，我也不要忘记你那熟悉的温柔。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
