@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果可以，愿来生你不要忘记我，我也不要忘记你那熟悉的温柔。 --佚名
+我今天就是要带她走，我看哪个敢拦我。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
