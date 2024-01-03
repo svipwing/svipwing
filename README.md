@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我希望我能有一点点的时间，来治愈日益强烈的疼痛。 --Irony
+落叶他乡树，寒灯独夜人。 --马戴
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
