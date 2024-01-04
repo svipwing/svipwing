@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人和人是无法理解的，所有的理解都是建立在自己的主观之上。 --佚名
+圣人不死，大盗不止。 --庄子及门生（外篇）
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
