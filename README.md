@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有一个喜欢你的人出现，一定不要凶她哦！ --瑶瑶
+这世界上没有坏女人和坏男人只有喜欢你的人和不喜欢你的人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
