@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
+你与我的夹角是23°26′，太阳的光辉在你我之间来来去去。 --瀚海澜云
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
