@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Stay hungry, Stay foolish. --史蒂夫-乔布斯
+眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
