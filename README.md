@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天之涯，地之角，知交半零落，一壶浊酒尽余欢，今宵别梦寒。 --弘一法师
+一起去看星星吧。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
