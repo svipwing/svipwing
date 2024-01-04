@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-圣人不死，大盗不止。 --庄子及门生（外篇）
+天之涯，地之角，知交半零落，一壶浊酒尽余欢，今宵别梦寒。 --弘一法师
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
