@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这世界上没有坏女人和坏男人只有喜欢你的人和不喜欢你的人。 --佚名
+方寸之间，深不见底啊。 --刘慈欣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
