@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-料想得年年肠断处，明夜月，短松冈。 --苏轼
+这世界是个好地方，值得为它奋斗。后半句我同意。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
