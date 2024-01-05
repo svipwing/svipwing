@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这世界是个好地方，值得为它奋斗。后半句我同意。 --佚名
+只有分离后才能懂的事，却没有了感慨的时间。 --波尔茨
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
