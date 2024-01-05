@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界上有太多孤独的人害怕先踏出第一步。 --佚名
+“你最可爱”，我说时来不及思索，而思索之后，还是这样说。 --普希金
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
