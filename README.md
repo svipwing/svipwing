@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你的笑容怡人如晚霞般，在川流不息的时光中，神采飞扬。 --许巍
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
