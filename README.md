@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只有分离后才能懂的事，却没有了感慨的时间。 --波尔茨
+最好的感觉，是有人懂你的欲言又止。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
