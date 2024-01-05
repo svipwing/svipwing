@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-“你最可爱”，我说时来不及思索，而思索之后，还是这样说。 --普希金
+料想得年年肠断处，明夜月，短松冈。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
