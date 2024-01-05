@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最好的感觉，是有人懂你的欲言又止。 --佚名
+智慧需要沉淀，积累才能够饱满。 --路法
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
