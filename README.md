@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-智慧需要沉淀，积累才能够饱满。 --路法
+世界之大为何我们相遇，难道是缘分，难道是天意。 --曲婉婷
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
