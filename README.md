@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要不断的移动像水一样，才不会变成死水一样，你要不断流动着！ --佚名
+我不曾活着，又何必害怕死亡。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
