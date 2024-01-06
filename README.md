@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有一个喜欢你的人出现，一定不要凶她哦！ --瑶瑶
+金钱和女人，是人生犯错的根源。 --丹尼·鮑伊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
