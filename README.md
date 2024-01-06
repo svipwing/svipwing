@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-金钱和女人，是人生犯错的根源。 --丹尼·鮑伊
+来人间一趟 你要看看太阳。 --薯味博饼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
