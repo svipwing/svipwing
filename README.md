@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我不曾活着，又何必害怕死亡。 --佚名
+太阳请不要晒黑我的皮肤，请晒黑我爸爸妈妈的头发。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
