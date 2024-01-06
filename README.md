@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谁不和我们一起就是反对我们，中立的人最危险。 --佚名
+要不断的移动像水一样，才不会变成死水一样，你要不断流动着！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
