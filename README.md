@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-回声：寻觅归乡之路，一次一颗子弹 --佚名
+事实总是露骨地斥责我，有些痛苦是不能体尝的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
