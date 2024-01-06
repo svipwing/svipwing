@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-事实总是露骨地斥责我，有些痛苦是不能体尝的。 --佚名
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
