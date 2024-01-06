@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-背上背包，带上行囊，去你的世界旅行。 --佚名
+新欢是良药，而我选择了时间。 --九望
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
