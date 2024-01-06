@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-太阳请不要晒黑我的皮肤，请晒黑我爸爸妈妈的头发。 --佚名
+如果有一个喜欢你的人出现，一定不要凶她哦！ --瑶瑶
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
