@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人而无仪，不死何为! --佚名
+我将变成死亡，世界的毁灭者。 --刘慈欣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
