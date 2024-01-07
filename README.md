@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管风吹浪打，胜似闲庭信步。 --毛泽东
+失落至极致，是虚无。 --GoodChing
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
