@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-与众不同的生活方式很累人呢，因为找不到借口。 --佚名
+趁着年轻，好好犯病。 --he
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
