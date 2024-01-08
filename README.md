@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的黑衣又该如何将你的星空包裹。 --佚名
+每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
