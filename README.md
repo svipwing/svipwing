@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命的意义这件事，想必人类自己也不明白吧。 --莉莉丝
+数学分析？我已经完全掌握了。 --qhw
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
