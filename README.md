@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有情人终成眷属，没钱人亲眼目睹。 --快手评论
+如果你一个人把什么都做完了，那我做什么？ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
