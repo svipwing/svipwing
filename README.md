@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-旧时轻寒友，醉与梦沙舟。月寒苦夜短，终岁望南洲。 --月雩
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
