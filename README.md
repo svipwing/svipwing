@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的船上没有手下，只有伙伴。 --佚名
+生命的意义这件事，想必人类自己也不明白吧。 --莉莉丝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
