@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-闻道者，朝生夕死，足尔；寻道者，忘生之死，憾尔。 --耳根
+我的黑衣又该如何将你的星空包裹。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
