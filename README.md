@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能够用自己喜欢的工作维持生活是件很幸福的事情 --佚名
+再深的感情终是黄粱一梦。 --蓝麓
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
