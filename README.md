@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那些听不见音乐的人以为跳舞的人疯了。 --弗里德里希·威廉·尼采
+握不住的沙，不如扬了它。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
