@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恨人神之道殊兮，怨盛年之莫当。 --曹植
+忘掉一个人的劣根性就像把千辛万苦赚来的钱扔掉一样。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
