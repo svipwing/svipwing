@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所谓辉煌的人生，不过是欲望的囚徒。 --叔本华
+祈愿万家灯火熨烫过脉络，刀山与火海多深刻，都陪你渡过。 --南语
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
