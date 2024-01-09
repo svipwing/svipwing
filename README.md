@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-再深的感情终是黄粱一梦。 --蓝麓
+恨人神之道殊兮，怨盛年之莫当。 --曹植
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
