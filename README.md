@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当时共我赏花人，点检如今无一半。 --晏殊
+所谓辉煌的人生，不过是欲望的囚徒。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
