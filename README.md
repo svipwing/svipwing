@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我又不是因为你们的评价才去当的英雄，是因为我想当才去当的。 --佚名
+当时共我赏花人，点检如今无一半。 --晏殊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
