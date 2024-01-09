@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们在努力扩大自己，以靠近，以触及我们自身以外的世界。 --博尔赫斯谈话录
+想一个人有多想念，那又是文字失效瞬间。 --五月天
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
