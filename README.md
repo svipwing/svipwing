@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-想一个人有多想念，那又是文字失效瞬间。 --五月天
+那些听不见音乐的人以为跳舞的人疯了。 --弗里德里希·威廉·尼采
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
