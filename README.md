@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我也不登天子船，我也不上长安眠。 --唐寅
+我想要说的，前人们都说过了。我想要做的，有钱人都做过了。 --草东没有派对
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
