@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算天塌下来变成一片废墟，他的脸色也不会有丝毫变化。 --叔本华
+虽然已经不能见面了，虽然孤独，但是不要紧。 --一个无归期的人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
