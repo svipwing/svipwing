@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我们总是等着自己做好准备，那可能这一生都在等待中度过了。 --佚名
+上善若水，水善利万物而不争。 --李伯阳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
