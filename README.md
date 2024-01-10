@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无产阶级在这个革命中失去的只是锁链，他获得的将是整个世界。 --马克思&恩格斯
+没心没肺，活着不累。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
