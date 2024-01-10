@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一场秋雨一场凉，秋心酌满泪为霜。 --夙鱼
+我也不登天子船，我也不上长安眠。 --唐寅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
