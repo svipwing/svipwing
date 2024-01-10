@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虽然已经不能见面了，虽然孤独，但是不要紧。 --一个无归期的人
+一场秋雨一场凉，秋心酌满泪为霜。 --夙鱼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
