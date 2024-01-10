@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-编程是一种技艺，一种需要用心学习的技艺。 --佚名
+我希望兜兜转转之后那个人还是你。 --不要半夜躲在被子里哭了
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
