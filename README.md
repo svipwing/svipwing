@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-祈愿万家灯火熨烫过脉络，刀山与火海多深刻，都陪你渡过。 --南语
+就算天塌下来变成一片废墟，他的脸色也不会有丝毫变化。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
