@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-承蒙遇见，三生有幸 --佚名
+我们的时代还没到来，有的人死后方生。 --尼采
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
