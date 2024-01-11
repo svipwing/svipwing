@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-上善若水，水善利万物而不争。 --李伯阳
+接天莲叶无穷碧，映日荷花别样红。 --杨万里
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
