@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-赢得了时间就是赢得了一切。 --佚名
+一草一千秋，一花一世界。 --龙应台
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
