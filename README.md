@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一草一千秋，一花一世界。 --龙应台
+一年中和一生中的秋天，时光很短暂，但是更加晴朗而缺少变化。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
