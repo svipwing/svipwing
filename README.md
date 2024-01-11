@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们的时代还没到来，有的人死后方生。 --尼采
+只要能努力，就应当去努力；只要还能前进，就要向前走去。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
