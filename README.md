@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
+要是追不上光，那就变成光吧。 --小白想做你的唯一
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
