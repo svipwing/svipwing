@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一年中和一生中的秋天，时光很短暂，但是更加晴朗而缺少变化。 --叔本华
+不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
