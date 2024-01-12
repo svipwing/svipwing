@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在童话中，一个人做他想做的事；在现实中，一个人做他能做的事。 --佚名
+慢慢来，谁还没有一个努力的过程。 --pony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
