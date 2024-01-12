@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-闻君有两意，故来相决绝。 --卓文君
+在童话中，一个人做他想做的事；在现实中，一个人做他能做的事。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
