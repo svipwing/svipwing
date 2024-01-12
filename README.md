@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢慢来，谁还没有一个努力的过程。 --pony
+黑暗的环境容易做错事。 --某中学数学老师
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
