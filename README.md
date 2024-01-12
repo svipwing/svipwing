@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-寻寻觅觅，冷冷清清，凄凄惨惨戚戚。 --李清照
+我命令你，喜欢我！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
