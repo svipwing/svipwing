@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-黑暗的环境容易做错事。 --某中学数学老师
+北树阴浓，青衣成风。 --封侯拜饭
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
