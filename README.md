@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-任何一件事都具有两面性。 --佚名
+You complete me ! --joker
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
