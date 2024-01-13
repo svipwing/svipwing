@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-——什么是孤独？——心里明明空荡荡的，却什么也装不下。 --此账号已注销
+人而无仪，不死何为! --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
