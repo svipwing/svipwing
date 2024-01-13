@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-己所不欲，勿施于人。 --佚名
+过去已成过去，将来还是将来，而我们能改变的只有现在。 --网友
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
