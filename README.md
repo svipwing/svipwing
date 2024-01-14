@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+恨人神之道殊兮，怨盛年之莫当。 --曹植
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
