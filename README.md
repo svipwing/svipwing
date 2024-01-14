@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-恨人神之道殊兮，怨盛年之莫当。 --曹植
+你之所以相信一个人说的话,是因为他说了你想听的话。 --克莱儿·麦克福尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
