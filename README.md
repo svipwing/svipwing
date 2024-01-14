@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算风吹散了冰雪，想念也会留存下来。 --佚名
+让时间再慢些啊，让笑容常驻啊，让你再近一点啊。 --一只叫一行的喵
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
