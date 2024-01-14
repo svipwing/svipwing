@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-过去已成过去，将来还是将来，而我们能改变的只有现在。 --网友
+七八个星天外，两三点雨山前。 --辛弃疾
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
