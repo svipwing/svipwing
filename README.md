@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-七八个星天外，两三点雨山前。 --辛弃疾
+你已经奔走了许久，坚持最后一战，你就是冠军。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
