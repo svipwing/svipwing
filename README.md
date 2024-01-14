@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你之所以相信一个人说的话,是因为他说了你想听的话。 --克莱儿·麦克福尔
+老夫聊发少年狂，左牵黄，右擎苍。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
