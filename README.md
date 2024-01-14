@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
+世间无限丹青手，一片伤心画不成。 --高蟾
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
