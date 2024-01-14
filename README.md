@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-老夫聊发少年狂，左牵黄，右擎苍。 --苏轼
+就算风吹散了冰雪，想念也会留存下来。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
