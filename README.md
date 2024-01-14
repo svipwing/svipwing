@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能够被人们正常理解的现实，只是大概率事件恰巧发生了而已。 --小行星坠落
+自以为心若顽石，却终究人非草木。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
