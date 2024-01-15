@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世间无限丹青手，一片伤心画不成。 --高蟾
+我没有梦想，但我可以守护别人的梦想！ --乾巧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
