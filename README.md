@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果不能忠于自己的心，胜负又有什么价值呢？ --佚名
+别丧了，说不定你也是别人心中偷偷藏起来的光。 --一个可爱的人吧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
