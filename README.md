@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-太阳纵然温暖热烈，但我更偏爱温柔如玉的你。 --葭樱
+人类把最精密的保密系统，都用在了自我毁灭上。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
