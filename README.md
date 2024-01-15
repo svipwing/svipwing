@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人类把最精密的保密系统，都用在了自我毁灭上。 --佚名
+愿你每一步，坦荡无憾；愿你未来路，自信从容。 --朱则光
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
