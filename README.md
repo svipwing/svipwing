@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-牙白得斯内！ --佚名
+我回来，是为了那些回不来的人。 --Ada
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
