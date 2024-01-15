@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿你每一步，坦荡无憾；愿你未来路，自信从容。 --朱则光
+生活的洪流欲让人们窒息，我们却在缺氧的环境中肆意成长。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
