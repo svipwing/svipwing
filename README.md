@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活的洪流欲让人们窒息，我们却在缺氧的环境中肆意成长。 --佚名
+如果不能忠于自己的心，胜负又有什么价值呢？ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
