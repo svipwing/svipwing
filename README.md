@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当世界背叛你的那天到来时，我会为你背叛全世界。 --佚名
+太阳纵然温暖热烈，但我更偏爱温柔如玉的你。 --葭樱
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
