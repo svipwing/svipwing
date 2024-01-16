@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
