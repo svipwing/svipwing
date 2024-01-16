@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-能有此番成就，我无愧于大家了！ --兽人剑士蕾伊
+那天，我听到了种子破土的声音，又细微又坚定。 --夏达
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
