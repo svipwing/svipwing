@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-朝闻道，夕死可矣。 --孔子
+让子弹飞一会儿！ --张麻子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
