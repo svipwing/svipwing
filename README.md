@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界真可怕，想回到妈妈的肚子里。 --佚名
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
