@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人在年轻时，不该遇到太惊艳的人。 --佚名
+能有此番成就，我无愧于大家了！ --兽人剑士蕾伊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
