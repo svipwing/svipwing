@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-唯有爱与梦想不可辜负 --佚名
+不要因为结束而哭泣，要因它发生过而欣喜。 --西奥多·苏斯·盖泽尔（苏斯博士）
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
