@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要因为结束而哭泣，要因它发生过而欣喜。 --西奥多·苏斯·盖泽尔（苏斯博士）
+实变函数学十遍，泛函学完心泛寒。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
