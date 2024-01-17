@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-前天是小兔子，昨天是小鹿，今天是你。 --佚名
+小荷才露尖尖角，早有蜻蜓立上头。 --杨万里
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
