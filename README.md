@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱与友情以及勇气改变不了一个人，只有受伤才能让人成长。 --佚名
+身后有余忘缩手，眼前无路想回头。 --曹雪芹
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
