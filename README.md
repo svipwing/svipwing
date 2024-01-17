@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-I'm nothing without you. --Clifford Devo
+You complete me ! --joker
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
