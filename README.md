@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在黎明到来之前，必须要有人稍微照亮黑暗。 --迪卢克
+I'm nothing without you. --Clifford Devo
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
