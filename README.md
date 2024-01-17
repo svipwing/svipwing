@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小荷才露尖尖角，早有蜻蜓立上头。 --杨万里
+百般乐器，唢呐为王；不是升天，就是拜堂。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
