@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好红，每当想起你，枫叶就会被染红。 --佚名
+在黎明到来之前，必须要有人稍微照亮黑暗。 --迪卢克
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
