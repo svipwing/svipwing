@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-飒爽英姿闯江湖，诗酒茶话莫孤独。 --是二智呀
+大部分人并不想长大 只是没办法继续当一个小孩子。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
