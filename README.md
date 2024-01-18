@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-少年听雨歌楼上。红烛昏罗帐。 --蒋捷
+结局是什么，我们自己决定！ --郑重生
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
