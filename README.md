@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-大部分人并不想长大 只是没办法继续当一个小孩子。 --佚名
+あなたは敵だけど悪くない。 --水门
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
