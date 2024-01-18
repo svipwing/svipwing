@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-あなたは敵だけど悪くない。 --水门
+少年听雨歌楼上。红烛昏罗帐。 --蒋捷
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
