@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-结局是什么，我们自己决定！ --郑重生
+我会和命运战斗，并且战胜给你看！ --剑崎一真
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
