@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-兼山艮，君子以思不出其位。 --佚名
+你的温柔只为我一个，我的坚强只为你一人。 --忆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
