@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-女王万岁，不绝于耳！ --米哈游
+如果你觉得黑暗，那你就做黑暗中的一盏光吧。 --罗翔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
