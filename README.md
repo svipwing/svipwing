@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我会和命运战斗，并且战胜给你看！ --剑崎一真
+情深不寿，强极则辱，谦谦君子，温润如玉。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
