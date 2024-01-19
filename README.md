@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-行百里者半九十。 --佚名
+此情无计可消除，才下眉头，却上心头。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
