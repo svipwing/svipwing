@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你觉得黑暗，那你就做黑暗中的一盏光吧。 --罗翔
+兼山艮，君子以思不出其位。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
