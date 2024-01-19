@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-情深不寿，强极则辱，谦谦君子，温润如玉。 --佚名
+后来，错过也成了人间常态。 --焦糖and瓜子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
