@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-此情无计可消除，才下眉头，却上心头。 --李清照
+现在我这个遗患，已经成为把真学们极欲拔掉的夫来比道中钉。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
