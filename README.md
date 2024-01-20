@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-危楼高百尺，手可摘星辰。 --李白
+猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
