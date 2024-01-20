@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-古之立大事者，不惟有超世之才，亦必有坚忍不拔之志。 --佚名
+每个人的心里，都有一个忘不记，却无法拥抱珍惜的人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
