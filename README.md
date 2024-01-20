@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-现实残酷地对待我们，那我们就去把现实砸个粉碎！ --荒泷一斗
+如日中天，群魔乱舞，应臆。 --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
