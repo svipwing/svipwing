@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们登上并非我们所选择的舞台，演出并非我们所选择的剧本。 --爱比克泰德
+梦里还是醒不来的梦，窗外有道看不清的虹。 --jhn
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
