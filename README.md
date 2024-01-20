@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-梦里还是醒不来的梦，窗外有道看不清的虹。 --jhn
+热情中的冷静让你镇定谦虚，冷静中的热情使你执着不懈。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
