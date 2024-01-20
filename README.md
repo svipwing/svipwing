@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-猫是可爱的，狼是很帅的。就是说，孤独又可爱又帅。 --佚名
+现实残酷地对待我们，那我们就去把现实砸个粉碎！ --荒泷一斗
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
