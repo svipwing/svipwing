@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-小楼一夜听春雨，深巷明朝卖杏花。 --陆游
+我寄愁心与明月，随风直到夜郎西。 --李白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
