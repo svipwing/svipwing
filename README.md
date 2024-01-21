@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-落霞与孤鹜齐飞，秋水共长天一色。 --王勃
+趁着年轻，好好犯病。 --he
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
