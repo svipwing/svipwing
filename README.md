@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+他们是士兵，执行命令是他们的天职，哪怕注定走向失败。 --K
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
