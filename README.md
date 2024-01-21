@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-往者不可谏，来者犹可追。 --佚名
+落霞与孤鹜齐飞，秋水共长天一色。 --王勃
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
