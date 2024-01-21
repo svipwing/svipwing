@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-他们是士兵，执行命令是他们的天职，哪怕注定走向失败。 --K
+只要是正义的一方，无论手段多么卑鄙都可以被原谅 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
