@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我忘记了所有悲剧，看到的都是奇迹。 --奎若
+大本钟下送快递——上面摆，下面寄。 --记得
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
