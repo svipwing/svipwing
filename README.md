@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-直到看见她和别人恋爱的模样，才发现自己从来没被爱过。 --佚名
+每一个不曾起舞的日子，都是对生命的辜负。 --尼采
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
