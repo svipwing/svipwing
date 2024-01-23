@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-大本钟下送快递——上面摆，下面寄。 --记得
+如果自己不想积极认真地生活，不管得到什么样的回答都没用。 --东野圭吾
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
