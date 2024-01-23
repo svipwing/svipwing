@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果自己不想积极认真地生活，不管得到什么样的回答都没用。 --东野圭吾
+寒夜客来茶当酒，竹炉汤沸火初红。 --杜耒
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
