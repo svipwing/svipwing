@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
+望不穿那海底突然跌落的暗与无穷。 --夙鱼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
