@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-失礼、噛みました --佚名
+东西再好又怎样，我喜欢的永远是我拥有的。 --HUYYY
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
