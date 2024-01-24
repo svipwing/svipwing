@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个世界很大，告别的方式有多少种，人生的正确答案就有多少个。 --佚名
+男儿何不带吴钩，收取关山五十州。 --李贺
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
