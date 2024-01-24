@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿你的青春如花般绽放。 --佚名
+变好的过程都不太舒服，试试再努力点。 --pony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
