@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-憧憬是距离理解最遥远的感情。 --佚名
+夜月一帘幽梦，春风十里柔情。 --秦观
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
