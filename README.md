@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-XX什么的，最讨厌了！ --佚名
+点亮星火，眺望未来。 --点亮星火
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
