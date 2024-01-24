@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-男儿何不带吴钩，收取关山五十州。 --李贺
+疏影横斜水清浅，暗香浮动月黄昏。 --林逋
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
