@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-晚来天欲雪，能饮一杯无。 --白居易
+我本身得不到答案。所以，我希望有能够答出来之物的诞生。 --言峰绮礼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
