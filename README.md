@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-扬帆起航，于舟渡之。 --朴素
+大本钟下送快递——上面摆，下面寄。 --记得
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
