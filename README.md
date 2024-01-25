@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-夜月一帘幽梦，春风十里柔情。 --秦观
+身既死兮神以灵，魂魄毅兮为鬼雄。 --屈原
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
