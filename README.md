@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-她轻轻唱起来宛如天籁，让我的梦似翅膀心似海。 --关山
+装作拥有某样品质，实际上就等于承认了自己并没有这样品质。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
