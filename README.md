@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-大本钟下送快递——上面摆，下面寄。 --记得
+她轻轻唱起来宛如天籁，让我的梦似翅膀心似海。 --关山
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
