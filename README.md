@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-白马入芦花，银碗里盛雪。 --佚名
+当你真正想做成一件事情的时候，就连天地万物都会帮你。 --褚嬴
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
