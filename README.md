@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当你真正想做成一件事情的时候，就连天地万物都会帮你。 --褚嬴
+扬帆起航，于舟渡之。 --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
