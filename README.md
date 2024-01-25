@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-祝愿每日会有太阳为你升起，把你当做诗的最后一行。 --双十
+白马入芦花，银碗里盛雪。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
