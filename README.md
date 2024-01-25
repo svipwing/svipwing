@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我本身得不到答案。所以，我希望有能够答出来之物的诞生。 --言峰绮礼
+颤抖吧,凡人！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
