@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-纵使天光终将熄灭，我们也要歌颂太阳。 --巴尔蒙特
+有些事情本身我们无法控制，只好控制自己。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
