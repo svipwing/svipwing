@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若今后没有炬火，你便是唯一的光。 --鲁迅
+停下脚步才注意到 世界被染得雪白。 --A39＆沙包P＆初音ミク
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
