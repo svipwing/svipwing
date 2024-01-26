@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慈母手中线，游子身上衣。 --孟郊
+干燥的空气，尘埃的味道，我在其中……踏上旅途。 --宫园薰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
