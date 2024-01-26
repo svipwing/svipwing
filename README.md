@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-停下脚步才注意到 世界被染得雪白。 --A39＆沙包P＆初音ミク
+干燥的冷气，尘埃的味道，我在其中……踏上旅途。 --宫园薰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
