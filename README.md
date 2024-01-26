@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-忘掉生日，忘掉青涩的诗，忘掉他不厌其烦夜夜追逐他影子。 --邱意
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
