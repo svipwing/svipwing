@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-干燥的冷气，尘埃的味道，我在其中……踏上旅途。 --宫园薰
+纵使天光终将熄灭，我们也要歌颂太阳。 --巴尔蒙特
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
