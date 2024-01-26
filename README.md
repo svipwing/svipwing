@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
+松树千年终是朽，槿花一日自为荣。 --白居易
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
