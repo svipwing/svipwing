@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些事情本身我们无法控制，只好控制自己。 --佚名
+慈母手中线，游子身上衣。 --孟郊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
