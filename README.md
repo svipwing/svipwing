@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-松树千年终是朽，槿花一日自为荣。 --白居易
+若今后没有炬火，你便是唯一的光。 --鲁迅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
