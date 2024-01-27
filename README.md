@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-朋友之交，宜得删繁就简。 --佚名
+为什么我眼睛一睁开，你就不是我的了。 --寂落白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
