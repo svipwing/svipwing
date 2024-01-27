@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-始无弱，盛极衰，和以中之大同。 --朴素
+失去，得到，往往于一念间。 --GoodChing
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
