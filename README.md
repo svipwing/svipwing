@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-干燥的空气，尘埃的味道，我在其中……踏上旅途。 --宫园薰
+始无弱，盛极衰，和以中之大同。 --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
