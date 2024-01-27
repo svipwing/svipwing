@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为什么我眼睛一睁开，你就不是我的了。 --寂落白
+宁不知倾城与倾国。佳人难再得。 --李延年
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
