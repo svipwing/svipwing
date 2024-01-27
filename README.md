@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我明明可以一蹶不振地颓废下去，但我偏要一鸣惊人！ --佚名
+朋友之交，宜得删繁就简。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
