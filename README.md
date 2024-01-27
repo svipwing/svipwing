@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个人都在自己的生命中频繁地抛弃着自己的过去。 --米哈游
+有些人光是遇到就已经赚到了。 --赵紫骅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
