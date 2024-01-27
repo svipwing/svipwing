@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宁不知倾城与倾国。佳人难再得。 --李延年
+就算终有一散也别辜负相遇。 --网络
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
