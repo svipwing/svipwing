@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你指尖跳动的电光，是我此生不变的信仰 --佚名
+每个人都在自己的生命中频繁地抛弃着自己的过去。 --米哈游
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
