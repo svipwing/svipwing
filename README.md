@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些人光是遇到就已经赚到了。 --赵紫骅
+看看人间的苦难，听听人民的呐喊！ --《悲惨世界》音乐剧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
