@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-仙，这虚无缥缈的东西不要也罢，但怎能失去你！ --妖皇
+我不会留下你们，独自倒下去！ --未来公主
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
