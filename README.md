@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如日中天，群魔乱舞，应臆。 --朴素
+仙，这虚无缥缈的东西不要也罢，但怎能失去你！ --妖皇
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
