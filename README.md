@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-卡布奇诺今犹在，不见当年吃屏人。 --皮皮参
+我们等待着戈多，在等待的过程中发现戈多就是等待本身。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
