@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-消磨时间尚有更好的方法。想不想尝试一下？ --佚名
+卡布奇诺今犹在，不见当年吃屏人。 --皮皮参
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
