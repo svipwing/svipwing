@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
+落霞与孤鹜齐飞，秋水共长天一色。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
