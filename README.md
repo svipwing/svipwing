@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个人都有不愿回想的……记忆，而我能感知到这些。 --佚名
+人亡则死，心亡则忘。 --耳根
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
