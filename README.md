@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-越想贴近事实，不明白的事情就越多。 --法斯
+再强的敌人在最后一集的主角面前也是渣渣。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
