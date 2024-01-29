@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一往情深深几许？深山夕照深秋雨。 --纳兰性德
+因为失去,所以明白。 --漩涡鸣人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
