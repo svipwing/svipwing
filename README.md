@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-再强的敌人在最后一集的主角面前也是渣渣。 --佚名
+一往情深深几许？深山夕照深秋雨。 --纳兰性德
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
