@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每一个不曾起舞的日子，都是对生命的辜负。 --尼采
+不怕念起，唯恐觉迟，既已执手，此生不负。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
