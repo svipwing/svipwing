@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我希望我能有一点点的时间，来治愈日益强烈的疼痛。 --Irony
+我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
