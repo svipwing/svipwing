@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
+一举一动，都是承诺，会被另一个人看在眼里，记在心上的。 --宫崎骏
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
