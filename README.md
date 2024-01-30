@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你指尖跃动的电光，是我此生不变的信仰，唯我超电磁炮永世长存。 --佚名
+不论斟满的是什么，都要——干杯！ --吉皮乌斯诗
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
