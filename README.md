@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-玲珑骰子安红豆，入骨相思知不知。 --温庭筠
+我希望我能有一点点的时间，来治愈日益强烈的疼痛。 --Irony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
