@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人这辈子没法做太多事情，所以每一件都要做到精彩绝伦。 --佚名
+隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
