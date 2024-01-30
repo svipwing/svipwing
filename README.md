@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风月折断杨柳枝，琴瑟朝露挥掷成诗。 --龙小套
+玲珑骰子安红豆，入骨相思知不知。 --温庭筠
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
