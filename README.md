@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-见鬼去吧！ --恶魂
+你指尖跃动的电光，是我此生不变的信仰，唯我超电磁炮永世长存。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
