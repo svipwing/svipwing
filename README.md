@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你为了你的正义，我为了我的正义。 --佚名
+见鬼去吧！ --恶魂
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
