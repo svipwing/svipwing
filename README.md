@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你在看，我就是你的风景。如果你在听，我该有多幸运。 --周佳顺
+人啊，是利益的作品。 --陈和锐
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
