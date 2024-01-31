@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们不是大人，而是同学吧。 --九条千寻
+我曾踏足山巅，也曾进入低谷，二者都让我受益良多！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
