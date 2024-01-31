@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
+这瓜多少钱一斤？ --刘华强
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
