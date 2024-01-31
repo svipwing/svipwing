@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我要把你叫醒，哪怕赌上我的一切。 --佚名
+学而不厌，诲人不倦。 --孔子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
