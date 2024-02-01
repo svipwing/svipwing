@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-此时此刻的咱啊，能和汝在一起，是最幸福的了。 --支仓冻砂
+无论前方如何，请不要后悔与我相遇。 --古河渚
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
