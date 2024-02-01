@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-旅程总有一天会迎来终点，不必匆忙。 --钟离
+风月折断杨柳枝，琴瑟朝露挥掷成诗。 --龙小套
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
