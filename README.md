@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-太阳纵然温暖热烈，但我更偏爱温柔如玉的你。 --葭樱
+旅程总有一天会迎来终点，不必匆忙。 --钟离
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
