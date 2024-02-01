@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这瓜多少钱一斤？ --刘华强
+合适的话语胜过锋利的刀子。 --青钢影
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
