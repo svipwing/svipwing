@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-知识有两种，一种是你知道的，一种是你知道在哪里能找到的！ --佚名
+我想去天涯，你却带我去海角。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
