@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-海内存知己，天涯若比邻。 --王勃
+只有我才能带领我们走向胜利。 --诺克萨斯之手
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
