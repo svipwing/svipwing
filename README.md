@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只有我才能带领我们走向胜利。 --诺克萨斯之手
+长大后，为什么以前愿意倾诉的人现在相对无言了呢？ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
