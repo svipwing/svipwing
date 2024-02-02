@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相见争如不见，多情何似无情。 --司马光
+若你困于无风之地，我将奏响高天之歌。 --温迪
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
