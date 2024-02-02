@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-报君黄金台上意，提携玉龙为君死。 --佚名
+我们把世界看错，反说它欺骗了我们。 --泰戈尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
