@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只有用心才能看到本质，最重要的东西眼睛是无法看到的。 --佚名
+呐，我对你的沉沦，就像樱花落入大地~ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
