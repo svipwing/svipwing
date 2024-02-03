@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
+只有用心才能看到本质，最重要的东西眼睛是无法看到的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
