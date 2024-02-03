@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-独自莫凭栏，无限江山，别时容易见时难。 --李煜
+承诺常常很像蝴蝶，美丽的盘旋后就不见了。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
