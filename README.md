@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-其实美丽的故事都是没有结局的，只因为它没有结局所以才会美丽。 --佚名
+眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
