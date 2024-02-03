@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-帮助孩子，去实现他的梦想，对大人来说，那是无上的喜悦。 --佚名
+独自莫凭栏，无限江山，别时容易见时难。 --李煜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
