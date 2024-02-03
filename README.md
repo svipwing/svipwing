@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不忘初心，努力前行 --佚名
+现在的我，未来的我，一起去啊，更远的地方！ --木瓜黄
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
