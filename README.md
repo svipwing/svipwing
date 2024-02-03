@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-黄粱一梦，山水万重，人间总相逢。 --佚名
+帮助孩子，去实现他的梦想，对大人来说，那是无上的喜悦。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
