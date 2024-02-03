@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-长大后，为什么以前愿意倾诉的人现在相对无言了呢？ --佚名
+黄粱一梦，山水万重，人间总相逢。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
