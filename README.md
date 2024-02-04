@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+相信自然，也相信自己。 --寻血猎犬
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
