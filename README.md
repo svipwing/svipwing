@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-痛苦着痛苦着，满脑子只能想我的事。 --佚名
+抬眼一望，银河仿佛哗的一声，向岛村的心头倾泻下来。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
