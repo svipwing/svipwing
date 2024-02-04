@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-此时此刻的咱啊，能和汝在一起，是最幸福的了。 --支仓冻砂
+爱和很多东西一样，都是先用直觉发现，再用一生去证明的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
