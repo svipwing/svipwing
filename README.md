@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为毛我的眼里常含泪水，因为我老是躺着中枪。 --佚名
+痛苦着痛苦着，满脑子只能想我的事。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
