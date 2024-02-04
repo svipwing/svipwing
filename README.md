@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-抬眼一望，银河仿佛哗的一声，向岛村的心头倾泻下来。 --佚名
+因为太害怕失去，所以才将苦痛剥离。 --Naya
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
