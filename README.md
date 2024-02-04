@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如此生活30年，直到大厦崩塌。 --万能青年旅店
+为毛我的眼里常含泪水，因为我老是躺着中枪。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
