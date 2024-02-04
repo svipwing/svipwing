@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱和很多东西一样，都是先用直觉发现，再用一生去证明的。 --佚名
+如此生活30年，直到大厦崩塌。 --万能青年旅店
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
