@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-青春，其实在与现实的接受与妥协时就结束了​ --柳柳
+功名万里外，心事一杯中。 --高适
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
