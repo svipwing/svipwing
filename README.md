@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆是不会消失的，只是一时想不起来了而已。 --佚名
+故乡的云。上古的玉。随手的诗。十九岁的你。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
