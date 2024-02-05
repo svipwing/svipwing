@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
