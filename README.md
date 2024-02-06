@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们找到了一个晶莹绚丽，却又稍纵即逝的东西。我们称它为永恒。 --佚名
+看惯黑夜的人不应该习惯黑夜，而应该更习惯光明。 --罗翔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
