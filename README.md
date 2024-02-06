@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你会哭着笑，笑着哭，是因为你的心，早已超越了自己啊。 --佚名
+上善若水，水善利万物而不争。 --李伯阳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
