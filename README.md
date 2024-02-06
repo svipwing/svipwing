@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-看惯黑夜的人不应该习惯黑夜，而应该更习惯光明。 --罗翔
+嗯，一个人也要加油，我是坚强的孩子。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
