@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-纵深于黑夜之中化作黎明！ --林清凝
+有型的东西终究会消逝，不过……终于，这份回忆还是永远不朽的… --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
