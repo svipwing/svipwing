@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-上善若水，水善利万物而不争。 --李伯阳
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
