@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢慢来，谁还没有一个努力的过程。 --pony
+是我，慈祥的希姆莱爷爷哒！快进来让我摸摸。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
