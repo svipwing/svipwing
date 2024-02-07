@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-明明只是活着，哀伤却无处不在… --佚名
+变好的过程都不太舒服，试试再努力点。 --pony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
