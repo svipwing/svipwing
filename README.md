@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-要是追不上光，那就变成光吧。 --小白想做你的唯一
+慢慢来，谁还没有一个努力的过程。 --pony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
