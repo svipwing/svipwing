@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-教条是一种提醒，并且要你去寻求智慧。 --佚名
+成年人的世界没有容易二字。 --天气预报员
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
