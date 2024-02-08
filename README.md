@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-出言有尺，嬉闹有度，做事有余，说话有德。 --佚名
+可怜人意，薄于云水，佳会更难重。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
