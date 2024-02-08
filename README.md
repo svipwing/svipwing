@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孤独的人不会伤害别人，只会不断地伤害自己罢了。 --大老师
+远离亲人，我很遗憾，但这是我不得不做的事情。 --刘培强
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
