@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-是我，慈祥的希姆莱爷爷哒！快进来让我摸摸。 --The New Order:Last Days of Europe
+如果政府不能解决问题, 那它本身就成为问题! --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
