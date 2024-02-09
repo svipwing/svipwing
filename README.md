@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-西方人并不比东方人聪明，但是他们却找对了路。 --佚名
+哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
