@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-众口铄金，积毁销骨。 --佚名
+あなたは敵だけど悪くない。 --水门
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
