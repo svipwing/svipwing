@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要能努力，就应当去努力；只要还能前进，就要向前走去。 --佚名
+不要轻易的口出狂言，那样只会透露出你的软弱。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
