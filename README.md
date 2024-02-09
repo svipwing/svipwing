@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪有顷刻之间的心灰意冷，有的，只是日积月累的看透罢了。 --觅楽
+真正重要的东西，总是没有的人比拥有的人清楚。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
