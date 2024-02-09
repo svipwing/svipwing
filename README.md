@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所谓的奇迹就是要发生之后才会有价值存在的吧 --佚名
+枕上诗书闲处好，门前风景雨来佳。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
