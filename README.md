@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当太阳落山以后，烛光永无法替代。 --佚名
+如果温柔是罪，那就只能用拳头来洗清我们犯下的罪孽。 --曹玄亮
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
