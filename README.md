@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不努力就只能听到别人的好消息。 --佚名
+所以说爱恨真是奇怪的东西，有的早早腐烂入土，有的刻骨。 --木苏里
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
