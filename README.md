@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你怕不怕，这辈子就是上辈子所说的下辈子？ --未知
+你想走，就请立马抽刀，爱一笔勾销。 --方文山
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
