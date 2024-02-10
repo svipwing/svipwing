@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-资本来到世间，从头到脚每个毛孔都滴着血和肮脏的东西。 --卡尔·海因里希·马克思
+曲高未必人不识，自有知音与清词。 --云瑾
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
