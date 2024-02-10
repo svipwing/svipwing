@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-所以说爱恨真是奇怪的东西，有的早早腐烂入土，有的刻骨。 --木苏里
+生活和漫画里面的那种热血还是不一样的。 --Tim
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
