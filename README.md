@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活和漫画里面的那种热血还是不一样的。 --Tim
+引刀成一快，不负少年头。 --汪精卫
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
