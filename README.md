@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱,其实很简单，困难的是去接受它。 --佚名
+行远自迩，登高自卑。 --戴圣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
