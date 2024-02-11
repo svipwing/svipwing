@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在弱者眼里可能是这样，不过，我的确很强。 --PEACH-PIT
+我乃死，我乃生。我为暗，我亦为光。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
