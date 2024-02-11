@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-什么是时光？我们穿上的衣服，却再也脱不下来。 --阿多尼斯
+实变函数学十遍，泛函学完心泛寒。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
