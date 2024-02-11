@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-山不在高，有仙则名。水不在深，有龙则灵。 --刘禹锡
+什么是时光？我们穿上的衣服，却再也脱不下来。 --阿多尼斯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
