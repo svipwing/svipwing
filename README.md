@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+你指尖跳动的电光，是我此生不变的信仰 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
