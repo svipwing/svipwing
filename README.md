@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你指尖跳动的电光，是我此生不变的信仰 --佚名
+虚争空言，不如思而试之。 --马钧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
