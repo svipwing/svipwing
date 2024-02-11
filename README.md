@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-苦其心志，饿其体肤，空乏其身，行拂乱其所为。 --佚名
+我既不想伤害别人，也不想被伤害 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
