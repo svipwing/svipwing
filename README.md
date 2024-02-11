@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我既不想伤害别人，也不想被伤害 --佚名
+山不在高，有仙则名。水不在深，有龙则灵。 --刘禹锡
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
