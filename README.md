@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-似水流年是一个人所有的一切，只有这个东西，才真正归你所有。 --王小波
+这世界太大，勇敢的少年奔赴天涯。 --陈可心
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
