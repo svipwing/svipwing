@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-长大了，才能体会什么是责任！ --佚名
+似水流年是一个人所有的一切，只有这个东西，才真正归你所有。 --王小波
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
