@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你可以不学习，但你的竞争对手不会！ --网络
+爱欲于人，犹如执炬，逆风而行，必有烧手之患。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
