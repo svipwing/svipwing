@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-这世界太大，勇敢的少年奔赴天涯。 --陈可心
+天长地久有时尽，此恨绵绵无绝期。 --白居易
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
