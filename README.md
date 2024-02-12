@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿人类圣光永存！ --佚名
+你可以不学习，但你的竞争对手不会！ --网络
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
