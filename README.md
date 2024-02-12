@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跑得快不一定赢，老跌跟头才是成功。 --佚名
+江山代有才人出，各领风骚数百年。 --赵翼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
