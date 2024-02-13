@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你在我规划的航程上，我在你投射的视线里。 --周佳顺
+你再怎么称赞我，我也不会高兴的，你这个混蛋~ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
