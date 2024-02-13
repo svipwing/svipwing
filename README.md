@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-吾心吾行澄如明镜，所作所为皆为正义。 --飙马野郎
+你在我规划的航程上，我在你投射的视线里。 --周佳顺
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
