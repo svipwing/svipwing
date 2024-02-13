@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命太短，一秒钟都不留给让人不快的家伙。 --佚名
+繁花血景在那一赛季达到巅峰，却也止于巅峰。 --蝴蝶蓝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
