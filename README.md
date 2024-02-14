@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-忘记了过去，就意味着背叛！ --佚名
+我把这几个字写了又删，删了又写。 --叶子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
