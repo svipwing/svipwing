@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真是的，明明第一次做人，却默契的装作了第二次的模样。 --寸惑
+忘掉生日，忘掉青涩的诗，忘掉他不厌其烦夜夜追逐他影子。 --邱意
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
