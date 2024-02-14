@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-其实很多人都没去过自己家乡的景点，别问好不好玩了。 --佚名
+忘记了过去，就意味着背叛！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
