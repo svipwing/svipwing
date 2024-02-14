@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
+人心中混沌必有，才能孕育出星辰。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
