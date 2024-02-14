@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有些人光是遇到就已经赚到了。 --赵紫骅
+你是故意找茬是不是？ --华强
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
