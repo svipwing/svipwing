@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-时间的意义取决于人类：千年如一日，一日复千年。 --The New Order:Last Days of Europe
+永远不要放弃你真正想要得到的东西，等待虽难，但后悔更甚。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
