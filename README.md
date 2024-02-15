@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-永远不要放弃你真正想要得到的东西，等待虽难，但后悔更甚。 --佚名
+井底之蛙不曾见过大海，但见过湛蓝的天空。 --超和平Busters
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
