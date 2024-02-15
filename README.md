@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-好好学习，天天向上。 --毛泽东
+其实结束并不是真正的结束，而是美好的开始。 --1sdaxf
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
