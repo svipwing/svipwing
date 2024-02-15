@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-同是天涯沦落人，相逢何必曾相识！ --白居易
+我也想杀死伤痛，让那恩怨有始有终。 --刘森
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
