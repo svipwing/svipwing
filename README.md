@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-救救我啊奥特曼，哪怕你只能撑三分钟… --佚名
+同是天涯沦落人，相逢何必曾相识！ --白居易
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
