@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有人戳你脊梁，有人爱你荒唐。 --与又
+救救我啊奥特曼，哪怕你只能撑三分钟… --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
