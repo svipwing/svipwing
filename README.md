@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-厚道的人 运气都不会太差 --佚名
+如果一个人连死都不怕的话,那么他害怕的事情就太多了 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
