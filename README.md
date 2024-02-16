@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一寸柔肠情几许？薄衾孤枕，梦回人静，彻晓潇潇雨。 --惠洪
+人间有味是清欢。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
