@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我想要山盟，你却带给我海誓。 --佚名
+孤灯不明思欲绝，卷帷望月空长叹。 --李白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
