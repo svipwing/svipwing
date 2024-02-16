@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-浮天水送无穷树，带雨云埋一半山。 --佚名
+菩提本无树，明镜亦非台。 --惠能
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
