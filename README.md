@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孤灯不明思欲绝，卷帷望月空长叹。 --李白
+童年啊，是梦中的真，是真中的梦，是回忆时含泪的微笑。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
