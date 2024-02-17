@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要轻易的口出狂言，那样只会透露出你的软弱。 --佚名
+世事变幻无常，而近乎永恒不变者，唯你我头上的同一片星空。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
