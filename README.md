@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-落叶别树，飘零随风。客无所托，悲与此同。 --李白
+隔着人潮呼救像只困兽，呼吸颤抖去泪流，去相拥。 --南语
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
