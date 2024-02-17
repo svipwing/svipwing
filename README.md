@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你现在的气质里，藏着你走过的路，读过的书和爱过的人。 --迈克尔·柯蒂茲
+落叶别树，飘零随风。客无所托，悲与此同。 --李白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
