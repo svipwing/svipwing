@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有一个世界会比活在这个世界痛苦 --佚名
+断剑重铸之日，骑士归来之时。 --锐雯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
