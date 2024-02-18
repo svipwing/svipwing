@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-弱小和无知不是生存的障碍，傲慢才是。 --佚名
+欲买桂花同载酒，只可惜故人，何日再见啊。 --钟离
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
