@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-下坡路固然好走，可也许就再也上不来了。 --Enthon
+世界是一场空虚的宇宙，有时候仍像是一个梦。 --小冰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
