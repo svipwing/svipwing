@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-让你们尝尝战栗的滋味，因寒冷，也因畏惧。 --贵族魅魔比安卡
+最短的捷径就是绕远路。 --杰洛·齐贝林
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
