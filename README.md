@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界是一场空虚的宇宙，有时候仍像是一个梦。 --小冰
+弱小和无知不是生存的障碍，傲慢才是。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
