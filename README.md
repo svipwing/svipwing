@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-总有一个人一直住在心底，却又告别在生活里。 --ShimmerLS
+下坡路固然好走，可也许就再也上不来了。 --Enthon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
