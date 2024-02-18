@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-最短的捷径就是绕远路。 --杰洛·齐贝林
+眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
