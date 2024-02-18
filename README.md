@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-断剑重铸之日，骑士归来之时。 --锐雯
+装作拥有某样品质，实际上就等于承认了自己并没有这样品质。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
