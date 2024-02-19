@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-用伤害无辜者来掩盖自己的错误是心虚的体现，也永远掩盖不了。 --Hannah_AI
+保持热爱，奔赴山海。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
