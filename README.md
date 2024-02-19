@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-眼泪无法洗去痛苦，但岁月可以抹去一切。 --@路人威
+用伤害无辜者来掩盖自己的错误是心虚的体现，也永远掩盖不了。 --Hannah_AI
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
