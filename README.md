@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-那天她夸我很会笑,那十秒灵魂大概已卖掉. --佚名
+懵懂少年，不知天涯多远。 --无
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
