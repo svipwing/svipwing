@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-经历这种痛苦的人，我一个就够了！但为什么你就是不明白呢？！ --莲华
+最是人间留不住，朱颜辞镜花辞树。 --王国维
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
