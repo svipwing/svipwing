@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-下辈子变成你喜欢的人，然后不喜欢你！ --佚名
+经历这种痛苦的人，我一个就够了！但为什么你就是不明白呢？！ --莲华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
