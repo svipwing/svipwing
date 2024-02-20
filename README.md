@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-友情其实和爱情一样，很多的时候，距离才可以让彼此更懂得彼此。 --郭敬明
+丢掉幻想，准备斗争。 --毛泽东
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
