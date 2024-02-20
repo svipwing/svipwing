@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-懵懂少年，不知天涯多远。 --无
+不让我们站在巨人的肩膀上，我们就自己成长为巨人。 --董卿
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
