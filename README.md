@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一辈子，能坚持做好一件事就很伟大了！ --柯钊
+死并非再生的对立面，而是作为生的一部分永存于生中。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
