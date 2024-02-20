@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-丢掉幻想，准备斗争。 --毛泽东
+打到最后，应该就剩你自己，和，你为的人吧。 --聛
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
