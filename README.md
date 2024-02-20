@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-斯人若彩虹，遇上方知有。 --佚名
+强大使人快乐。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
