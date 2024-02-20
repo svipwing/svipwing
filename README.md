@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-强大使人快乐。 --佚名
+友情其实和爱情一样，很多的时候，距离才可以让彼此更懂得彼此。 --郭敬明
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
