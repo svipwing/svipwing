@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不让我们站在巨人的肩膀上，我们就自己成长为巨人。 --董卿
+那些听不见音乐的人认为那些跳舞的人疯了。 --亨利·柏格森
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
