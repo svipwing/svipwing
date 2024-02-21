@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
+爸爸我也不是一生下来就是爸爸，爸爸也是头一次当爸爸。 --德善父亲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
