@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-无垢清净光，慧日破诸暗，能伏灾风火，普明照世间。 --鸠摩罗什
+我本可以忍受黑暗，可是我看见了光明。 --艾米莉·狄金森
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
