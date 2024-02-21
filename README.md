@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-打到最后，应该就剩你自己，和，你为的人吧。 --聛
+此身合是诗人未？细雨骑驴入剑门。 --陆游
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
