@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
+我只是不想再失去他——哪怕是仅存在一瞬的幻影！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
