@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你就是盛开着的，漫山遍野的温柔。 --佚名
+无垢清净光，慧日破诸暗，能伏灾风火，普明照世间。 --鸠摩罗什
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
