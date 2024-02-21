@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我本可以忍受黑暗，可是我看见了光明。 --艾米莉·狄金森
+Why so serious? --小丑
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
