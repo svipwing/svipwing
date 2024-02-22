@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爸爸我也不是一生下来就是爸爸，爸爸也是头一次当爸爸。 --德善父亲
+丈夫非无泪，不洒离别间。 --陆龟蒙
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
