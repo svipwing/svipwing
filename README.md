@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果你喜欢，就把这一切当做是荣耀，而不是炫耀。 --蝴蝶蓝
+一切都将逝去，只有死神永生。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
