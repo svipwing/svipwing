@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-别紧张，我又不是什么好人。 --佚名
+飒爽英姿闯江湖，诗酒茶话莫孤独。 --是二智呀
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
