@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-丈夫非无泪，不洒离别间。 --陆龟蒙
+每个人都有一段悲伤，想隐藏却欲盖弥彰。 --张信哲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
