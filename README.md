@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每个人都有一段悲伤，想隐藏却欲盖弥彰。 --张信哲
+不忘痛苦是为了让自己活下去啊。 --凪
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
