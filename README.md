@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-飒爽英姿闯江湖，诗酒茶话莫孤独。 --是二智呀
+死亡不是生命的终点，遗忘才是。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
