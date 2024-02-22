@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-暴雨中前进，伞是倒划天空的船。 --佚名
+如果你喜欢，就把这一切当做是荣耀，而不是炫耀。 --蝴蝶蓝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
