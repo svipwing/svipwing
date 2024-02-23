@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你的温柔只为我一个，我的坚强只为你一人。 --忆
+众里寻他千百度，暮然回首，那人却在灯火阑珊处。 --辛弃疾
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
