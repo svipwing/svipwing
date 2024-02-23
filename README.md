@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我又不是因为你们的评价才去当的英雄，是因为我想当才去当的。 --佚名
+且视他人之疑目如盏盏鬼火，大胆地去你的夜路。 --史铁生
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
