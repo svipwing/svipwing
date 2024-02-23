@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界既不黑也不白，而是一道精致的灰。 --青钢影
+我也许不是好人，也不是坏人，但肯定不是小人。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
