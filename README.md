@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-众里寻他千百度，暮然回首，那人却在灯火阑珊处。 --辛弃疾
+人活着，当哭则哭，声音不悲不哭。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
