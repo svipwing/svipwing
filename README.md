@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-且视他人之疑目如盏盏鬼火，大胆地去你的夜路。 --史铁生
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
