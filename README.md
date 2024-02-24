@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要温和地走进那个良夜。怒斥，怒斥光明的消逝。 --狄兰·托马斯
+变好的过程都不太舒服，试试再努力点。 --pony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
