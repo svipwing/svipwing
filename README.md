@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
+真正走掉那次，关门声最小。 --@-南得你-
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
