@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+人生总是那么痛苦吗?还是只有小时候是这样? --玛蒂达
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
