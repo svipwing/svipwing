@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算是堕落浪子，也能力挽狂澜。 --方绪
+那些听不见音乐的人以为跳舞的人疯了。 --弗里德里希·威廉·尼采
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
