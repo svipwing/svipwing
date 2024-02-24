@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生总是那么痛苦吗?还是只有小时候是这样? --玛蒂达
+不要温和地走进那个良夜。怒斥，怒斥光明的消逝。 --狄兰·托马斯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
