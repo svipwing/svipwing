@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-虽然人生在世有种种不如意，但你仍可以在幸福与不幸中做选择。 --王小波
+和你在一起，需要下地狱吗？那么，我去。 --天下归元
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
