@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今晨我坐在窗前，世界像位过客，驻足片时，向我点头，走了。 --泰戈尔
+今日欢呼孙大圣，只缘妖雾又重来。 --毛泽东
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
