@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-在这251秒内，堵上我所拥有的一切！ --佚名
+常记溪亭日暮，沉醉不知归路。兴尽晚回舟，误入藕花深处。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
