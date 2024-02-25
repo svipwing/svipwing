@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不幸的是我们等了那么多年，幸运的我们那么多年过去还一直在一起 --佚名
+没有人的文明毫无意义。 --马兆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
