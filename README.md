@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今日欢呼孙大圣，只缘妖雾又重来。 --毛泽东
+我要把你叫醒，哪怕赌上我的一切。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
