@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一定没有问题的！ --佚名
+就算没有意义，偶尔也会有好事发生。 --尤莉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
