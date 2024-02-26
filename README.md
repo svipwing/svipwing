@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-夜来草木见露水，鸿雁南渡避寒。 --烽火戏诸侯
+皑如山上雪，皎若云间月。 --卓文君
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
