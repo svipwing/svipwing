@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-别师犹染凡心 剑端新雪霁 独恨无留迹 --佚名
+凤凰台上凤凰游，凤去台空江自流。 --李白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
