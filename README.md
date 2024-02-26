@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算没有意义，偶尔也会有好事发生。 --尤莉
+不是天才，就要慎独。 --皎月半洒花
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
