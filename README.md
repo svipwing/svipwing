@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不是天才，就要慎独。 --皎月半洒花
+如果预计中的不幸没有发生的话，我们就会收获意外的喜悦。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
