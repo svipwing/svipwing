@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果预计中的不幸没有发生的话，我们就会收获意外的喜悦。 --叔本华
+生来一人，去时孤身，便是江澄其人 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
