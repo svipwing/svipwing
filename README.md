@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生来一人，去时孤身，便是江澄其人 --佚名
+别师犹染凡心 剑端新雪霁 独恨无留迹 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
