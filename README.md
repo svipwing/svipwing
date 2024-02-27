@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有时写信才能表达，平时难以说出口的心声。 --薇尔莉特·伊芙嘉登
+我们开始一起攀登，这长长的，长长的坡道。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
