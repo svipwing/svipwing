@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们开始一起攀登，这长长的，长长的坡道。 --佚名
+下辈子变成你喜欢的人，然后不喜欢你！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
