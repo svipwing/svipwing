@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-下辈子变成你喜欢的人，然后不喜欢你！ --佚名
+天不生我李淳罡，剑道万古长如夜。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
