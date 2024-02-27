@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-纵然变化，依然故我。 --雅各布·伯努利
+假如失去追寻的动力，人类将消失在永恒的黑暗中。 --Do As Infinity
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
