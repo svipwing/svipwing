@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-假如失去追寻的动力，人类将消失在永恒的黑暗中。 --Do As Infinity
+这世界太大，勇敢的少年奔赴天涯。 --陈可心
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
