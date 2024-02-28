@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人的一切痛苦，本质上都是对自己无能的愤怒。 --王小波
+我今天就是要带她走，我看哪个敢拦我。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
