@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-今宵酒醒何处？杨柳岸，晓风残月。 --柳永
+生命中曾经有过的所有灿烂，原来终究，都需要用寂寞来偿还。 --马尔克斯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
