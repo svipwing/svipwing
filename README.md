@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
+三更灯火五更鸡，正是男儿读书时。 --颜真卿
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
