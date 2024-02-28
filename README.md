@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱与友情以及勇气改变不了一个人，只有受伤才能让人成长。 --佚名
+有形的东西迟早会凋零，但只有回忆是永远不会凋零的。 --纲手
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
