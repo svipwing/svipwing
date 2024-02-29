@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-悠悠天宇旷，切切故乡情。 --张九龄
+我好累啊，我终于变成了自己当初最讨厌的样子。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
