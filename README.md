@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿时光能缓，愿故人不散！ --佚名
+坚持坚持到绝望绝望。 --饰牌改变
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
