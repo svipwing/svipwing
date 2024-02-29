@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-坚持坚持到绝望绝望。 --饰牌改变
+十年生死两茫茫，不思量，自难忘。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
