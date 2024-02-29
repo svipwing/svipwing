@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-是不是现在踏出这一步，下决定的是他。 --佚名
+一切都将成为过去。 当一切都将成为过去的时候你得到了什么? --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
