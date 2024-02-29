@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-云母屏风烛影深，长河渐落晓星沉。 --李商隐
+悠悠天宇旷，切切故乡情。 --张九龄
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
