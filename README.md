@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-甲之蜜糖，乙之砒霜。 --亦舒
+就算天塌下来变成一片废墟，他的脸色也不会有丝毫变化。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
