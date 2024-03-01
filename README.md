@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-世人结交须黄金，黄金不多交不深。 --张谓
+成功不是终点，失败也不是终结，只有勇气才是永恒。 --西蒙·莱利
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
