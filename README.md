@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果我真的存在，也是因为你需要我。 --佚名
+我也想杀死伤痛，让那恩怨有始有终。 --刘森
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
