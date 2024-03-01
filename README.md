@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成功不是终点，失败也不是终结，只有勇气才是永恒。 --西蒙·莱利
+最最好的，与最最痛苦的，是一样的。 --玛德莱娜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
