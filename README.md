@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生就像一杯茶，不会苦一辈子，但会苦一阵子 --佚名
+世人结交须黄金，黄金不多交不深。 --张谓
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
