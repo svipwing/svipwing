@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-镜中花偷窥着笼中鸟。 --佚名
+甲之蜜糖，乙之砒霜。 --亦舒
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
