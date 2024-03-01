@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人的精神思想方面的优势越大，给无聊留下的空间就越小。 --叔本华
+镜中花偷窥着笼中鸟。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
