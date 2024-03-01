@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
+人的精神思想方面的优势越大，给无聊留下的空间就越小。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
