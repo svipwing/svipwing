@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-谁是我们的敌人，谁是我们的朋友，这是革命的首要问题。 --毛泽东
+天长地久有时尽，此恨绵绵无绝期。 --白居易
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
