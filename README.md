@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只要是正义的一方，无论手段多么卑鄙都可以被原谅 --佚名
+漠漠水田飞白鹭，阴阴夏木啭黄鹂。 --王维
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
