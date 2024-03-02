@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-认为自己的人种和文明高人一等是愚蠢的。 --习近平
+金钱和女人，是人生犯错的根源。 --丹尼·鮑伊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
