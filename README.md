@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-凡事都有一个与一望而知不同的真相 --佚名
+只要是正义的一方，无论手段多么卑鄙都可以被原谅 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
