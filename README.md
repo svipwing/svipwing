@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-漠漠水田飞白鹭，阴阴夏木啭黄鹂。 --王维
+认为自己的人种和文明高人一等是愚蠢的。 --习近平
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
