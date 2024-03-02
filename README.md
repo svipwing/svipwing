@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-起来！歌唱！我们走向胜利！ --佚名
+不管你在世界的哪个地方，我一定会，再次去见你的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
