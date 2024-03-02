@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管你在世界的哪个地方，我一定会，再次去见你的。 --佚名
+谁是我们的敌人，谁是我们的朋友，这是革命的首要问题。 --毛泽东
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
