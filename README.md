@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-可能你现在不是别人的，但将来也不会是我的。 --佚名
+成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
