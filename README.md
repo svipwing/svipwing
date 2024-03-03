@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成功率不到2%，那剩下的用勇气来补足吧！ --佚名
+来人间一趟 你要看看太阳。 --薯味博饼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
