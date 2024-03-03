@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
+成功率不到2%，那剩下的用勇气来补足吧！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
