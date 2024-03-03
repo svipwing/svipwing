@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-报君黄金台上意，提携玉龙为君死。 --佚名
+趁着年轻，好好犯病。 --he
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
