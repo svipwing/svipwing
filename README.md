@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-命运他无法让我跪地求饶，就算鲜血撒满了怀抱。 --佚名
+Control is Power. --奥斯卡·辛德勒
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
