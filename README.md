@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-鱼与熊掌不可兼得，唯独穷和单身可以 --佚名
+我忘记了所有悲剧，所见皆是奇迹。 --空洞骑士
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
