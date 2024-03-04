@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-找到迷失于黑夜的少女，这便是改写你命运的咒语。 --佚名
+此时此刻的咱啊，能和汝在一起，是最幸福的了。 --支仓冻砂
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
