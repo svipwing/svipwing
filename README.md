@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-只有我才能带领我们走向胜利。 --诺克萨斯之手
+找到迷失于黑夜的少女，这便是改写你命运的咒语。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
