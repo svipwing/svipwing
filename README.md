@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管风吹浪打，胜似闲庭信步。 --毛泽东
+生活和漫画里面的那种热血还是不一样的。 --Tim
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
