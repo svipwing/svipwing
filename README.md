@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-遗忘比绝望更强有力。 --叔本华
+远望岂能当归，岂能当归？ --余光中
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
