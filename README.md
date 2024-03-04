@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-成熟的人眼里满是前途，稚嫩的人眼里满是爱恨情仇。 --佚名
+鱼与熊掌不可兼得，唯独穷和单身可以 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
