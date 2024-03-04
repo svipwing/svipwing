@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活和漫画里面的那种热血还是不一样的。 --Tim
+只有我才能带领我们走向胜利。 --诺克萨斯之手
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
