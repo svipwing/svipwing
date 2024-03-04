@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一进，一跳！ --佚名
+失败是成功之母，不失败怎么能成功？ --小林
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
