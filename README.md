@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-失败是成功之母，不失败怎么能成功？ --小林
+失去故土的花朵，回不去，却也离不开。 --夏达
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
