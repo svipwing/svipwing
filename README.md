@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢也好，步伐小也罢，是往前走就好。 --佚名
+人，百年一世；龙，百年一岁。君生吾已老，君未变，而吾已老。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
