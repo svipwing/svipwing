@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你说过，人最大的敌人是自己。 --贺涵
+我又不是因为你们的评价才去当的英雄，是因为我想当才去当的。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
