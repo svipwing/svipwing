@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-有情人终成眷属，没钱人亲眼目睹。 --快手评论
+你说过，人最大的敌人是自己。 --贺涵
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
