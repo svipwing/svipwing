@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个人的思想等于一个人的素养。 --朴素
+改革不停顿，开放不止步。 --习近平
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
