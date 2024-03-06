@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宅，是一种生活状态；死宅，是一种人生境界…… --佚名
+男生送的礼物要方便拿来换钱才好吧！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
