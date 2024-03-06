@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-风月折断杨柳枝，琴瑟朝露挥掷成诗。 --龙小套
+世界之大为何我们相遇，难道是缘分，难道是天意。 --曲婉婷
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
