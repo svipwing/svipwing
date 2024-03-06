@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-男生送的礼物要方便拿来换钱才好吧！ --佚名
+あなたは敵だけど悪くない。 --水门
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
