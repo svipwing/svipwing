@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的辫子长在头上，诸君的辫子长在心里。 --辜鸿铭
+宅，是一种生活状态；死宅，是一种人生境界…… --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
