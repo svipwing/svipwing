@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-每当心情郁闷的时候，用手托腮就好，手臂会因为帮上忙而开心的。 --佚名
+一个人的思想等于一个人的素养。 --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
