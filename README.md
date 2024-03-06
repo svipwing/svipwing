@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-极霸矛，湘阿痕响啊。 --王爷
+我的辫子长在头上，诸君的辫子长在心里。 --辜鸿铭
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
