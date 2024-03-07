@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-嘤其鸣兮，求其友声。友声可远在千里之外，可远在数十百年之后。 --杨绛
+遗忘，也是种解脱：当人们为之逝去，活下来的为之蒙恨的时候。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
