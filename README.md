@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不知横跨几度银河，才终于在尽头与你相遇 --佚名
+当我原谅世界，拥抱世界，我就获得了赦免。 --苏菲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
