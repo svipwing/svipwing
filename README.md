@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-前度刘郎归去后，溪上碧桃多少。 --张炎
+为者常成，行者常至。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
