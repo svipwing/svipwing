@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-为者常成，行者常至。 --佚名
+不愿勾起相思，不敢出门看月；偏偏月进窗来，害我相思一夜。 --胡适
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
