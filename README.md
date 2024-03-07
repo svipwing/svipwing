@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-遗忘，也是种解脱：当人们为之逝去，活下来的为之蒙恨的时候。 --The New Order:Last Days of Europe
+你想走，就请立马抽刀，爱一笔勾销。 --方文山
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
