@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你想走，就请立马抽刀，爱一笔勾销。 --方文山
+不知横跨几度银河，才终于在尽头与你相遇 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
