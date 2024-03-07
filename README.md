@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-鞭炮再响，可哪有我想你那么想 --佚名
+嘤其鸣兮，求其友声。友声可远在千里之外，可远在数十百年之后。 --杨绛
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
