@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-隔着屏幕轻易产生感情的你，肯定很孤独吧。 --佚名
+愿你历尽千帆，归来仍是少年. --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
