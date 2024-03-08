@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-宁不知倾城与倾国。佳人难再得。 --李延年
+如果有好感，那就是喜欢，如果这种好感经得起考验，那就是爱。 --李宫俊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
