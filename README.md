@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果有好感，那就是喜欢，如果这种好感经得起考验，那就是爱。 --李宫俊
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
