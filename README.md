@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-野蛮人之间人吃人，文明人之间人骗人。 --叔本华
+隔着屏幕轻易产生感情的你，肯定很孤独吧。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
