@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+把温柔和心软留给值得的人。 --网络
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
