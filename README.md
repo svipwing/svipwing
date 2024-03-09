@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哦~我的老伙计，祝你度过有意义的一天~! --佚名
+你在努力创造更多幸福美好的回忆吗？ --鲜花店少女芭莉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
