@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你在努力创造更多幸福美好的回忆吗？ --鲜花店少女芭莉
+采菊东篱下，悠然见南山。 --陶渊明
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
