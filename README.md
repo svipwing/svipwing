@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-想要更多的力量，去爱这个世界。 --佚名
+可以嘲笑你的朋友，但不能嘲笑他喜欢的东西。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
