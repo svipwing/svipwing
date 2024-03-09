@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-喜欢你，因为我喜欢你，比地球上任何人都，喜欢你... --佚名
+一别都门三改火，天涯踏尽红尘。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
