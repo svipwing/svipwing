@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我不是光芒本身，我只是反射你们光的镜子。 --SNH48刘增艳
+孩子，我愿意为你而前行。 --埃隆教官
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
