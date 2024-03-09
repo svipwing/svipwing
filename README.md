@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一别都门三改火，天涯踏尽红尘。 --苏轼
+闹脾气的是我，最后难过的还是我。 --一个无归期的人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
