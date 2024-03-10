@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为痛苦太有价值，因为回忆太珍贵，所以我们更要继续往前走。 --佚名
+死亡不属于工人阶级！ --弗拉基米尔·伊里奇·列宁
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
