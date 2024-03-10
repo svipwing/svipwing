@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-孩子，我愿意为你而前行。 --埃隆教官
+明知道这颗种子不会发芽，却依然每天盼望它能长大。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
