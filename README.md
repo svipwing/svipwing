@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像那句狠话：有一天，我一定会后悔的。 --此账号已注销
+因为痛苦太有价值，因为回忆太珍贵，所以我们更要继续往前走。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
