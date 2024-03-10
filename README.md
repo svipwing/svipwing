@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我怕音乐，它总是让我想起一些不该想的事。他总是会让旧伤复发。 --佚名
+一切已失去，不可以再追。 --梅艳芳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
