@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-一切已失去，不可以再追。 --梅艳芳
+幻术世界有什么不好，现实太残酷，只会让这空洞越来越大。 --带土
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
