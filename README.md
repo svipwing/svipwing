@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+懵懂少年，不知天涯多远。 --无
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
