@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-经历这种痛苦的人，我一个就够了！但为什么你就是不明白呢？！ --莲华
+就像那句狠话：有一天，我一定会后悔的。 --此账号已注销
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
