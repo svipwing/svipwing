@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-死亡不属于工人阶级！ --弗拉基米尔·伊里奇·列宁
+欲买桂花同载酒，荒泷天下第一斗。 --钟离&荒泷一斗
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
