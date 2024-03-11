@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-坚定信念走下去。 --佚名
+真正走掉那次，关门声最小。 --@-南得你-
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
