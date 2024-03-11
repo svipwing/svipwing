@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-清晨的花朵，开在黄昏中的残骸之上，一切都会过去，不是吗？ --The New Order:Last Days of Europe
+坚定信念走下去。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
