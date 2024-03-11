@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要祈求生活公平，只需要适应它。 --佚名
+清晨的花朵，开在黄昏中的残骸之上，一切都会过去，不是吗？ --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
