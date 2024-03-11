@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-真正走掉那次，关门声最小。 --@-南得你-
+电脑的处理器总比执行单元小。 --licorp
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
