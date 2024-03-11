@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-你要的未来，就是这个样子吗？ --佚名
+我们生来，就是为了，在宇宙中，留下印记。 --Steve Jobs
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
