@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-装作拥有某样品质，实际上就等于承认了自己并没有这样品质。 --叔本华
+樱花满地集于我心，楪舞纷飞祈愿相随 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
