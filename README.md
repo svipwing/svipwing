@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-若不追忆，则从此听不到那年华里，谁的叹息。 --耳根
+我们没有永恒的朋友，也没有永恒的敌人，只有永恒的利益。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
