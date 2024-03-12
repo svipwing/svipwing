@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-就算是堕落浪子，也能力挽狂澜。 --方绪
+时间不在于你拥有多少，而在于你怎样去使用。 --艾克
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
