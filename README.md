@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-丁丁漏水夜何长，漫漫轻云露月光。 --佚名
+不做无情的仙，只做有情的人！ --耳根
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
