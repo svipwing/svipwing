@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-逆着光行走，任风吹雨打。 --买辣椒也用券
+十年一觉扬州梦，赢得青楼薄幸名。 --杜牧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
