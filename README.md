@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不做无情的仙，只做有情的人！ --耳根
+若不追忆，则从此听不到那年华里，谁的叹息。 --耳根
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
