@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-是不是现在踏出这一步，下决定的是他。 --佚名
+我妄想能改变命运，可终究不离此痛。 --夜间闪烁工作室
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
