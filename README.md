@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不管人生呈现出什么样貌，人生的构成要素都是一样的。 --叔本华
+春水碧于天，画船听雨眠。 --韦庄
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
