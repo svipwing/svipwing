@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-跨越光年，归来任是你。 --佚名
+从未给过我任何帮助，却想让我展翅高飞？ --Vikey安凝柠
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
