@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-哪怕一百个愚笨的人在一起聚会，也无法产生一个智慧的人。 --叔本华
+跨越光年，归来任是你。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
