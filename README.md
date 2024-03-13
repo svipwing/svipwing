@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-时间不在于你拥有多少，而在于你怎样去使用。 --艾克
+枕上诗书闲处好，门前风景雨来佳。 --李清照
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
