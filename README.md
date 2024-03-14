@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-实变函数学十遍，泛函学完心泛寒。 --佚名
+我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
