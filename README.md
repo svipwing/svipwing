@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活，就是生出来活下去，其它都是浮云，活的潇洒一点。 --吕小布
+神即道，道即法，道法自然，如来。 --豆豆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
