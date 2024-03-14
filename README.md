@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-Control is Power. --奥斯卡·辛德勒
+来人间一趟 你要看看太阳。 --薯味博饼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
