@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-神即道，道即法，道法自然，如来。 --豆豆
+明月也不曾记得它点亮过世界！ --皓月
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
