@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-自满必定失败，骄傲必定后悔。 --路法
+“奥雷里亚诺”，他悲伤的敲下发报键，“马孔多在下雨”。 --马尔克斯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
