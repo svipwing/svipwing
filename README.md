@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-我要打倒最可怕的邪恶，难免要撕去虚假正义的薄薄糖衣。 --路法
+我欲以身济天下，只忧碌碌不得安。 --识之律者
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
