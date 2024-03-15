@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-天生我材必有用，千金散尽还复来。 --李白
+剃刀边缘怎能起造伽蓝。 --木心
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
