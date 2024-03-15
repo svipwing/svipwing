@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-人总是贪婪的，就像最开始，我也只是想知道你的名字。 --新海诚
+大气的人不会因为这点小事来和你生气。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
