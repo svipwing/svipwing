@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不约，不约，叔叔我们不约~ --佚名
+生命如同寓言，其价值不在于长短，而在于内容。 --塞涅卡
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
