@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-前世若不相欠，今生怎会相见。 --佚名
+不想前进的时候，就暂且停下脚步吧♪ --Elysia.
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
