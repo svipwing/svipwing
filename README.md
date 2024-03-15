@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-棠梨换暮雪。 --鹤空流乂
+丢掉幻想，准备斗争。 --毛泽东
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
