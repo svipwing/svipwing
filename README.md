@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命如同寓言，其价值不在于长短，而在于内容。 --塞涅卡
+棠梨换暮雪。 --鹤空流乂
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
