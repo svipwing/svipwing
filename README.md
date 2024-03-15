@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-不想前进的时候，就暂且停下脚步吧♪ --Elysia.
+天生我材必有用，千金散尽还复来。 --李白
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
