@@ -7,16 +7,16 @@
 - 我的代表作：短链接系统、网页开发助手
 
 ![](metrics.classic.svg)
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=svipwing)
+![GitHub stats](https://github-readme-stats.xaoxuu.com/api?username=svipwing)
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=svipwing&layout=compact)
 
 <picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/svipwing/svipwing/main/github-snake-dark.svg" />
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/svipwing/svipwing/main/github-snake.svg" />
-  <img alt="github-snake" src="https://raw.githubusercontent.com/svipwing/svipwing/main/github-snake.svg" />
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.github.com/svipwing/svipwing/main/github-snake-dark.svg" />
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.github.com/svipwing/svipwing/main/github-snake.svg" />
+  <img alt="github-snake" src="https://raw.github.com/svipwing/svipwing/main/github-snake.svg" />
 </picture>
 
-![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
+![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
 当你足够期待失望时，你就永远不会失望。 --MJ
