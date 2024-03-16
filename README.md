@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-当人们做不到一些事情的时候，他们会对你说你也同样不能。 --克里斯·加德纳
+月色与雪色之间，你是第三种绝色。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
