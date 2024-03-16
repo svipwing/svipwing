@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-月色与雪色之间，你是第三种绝色。 --佚名
+忽来夜雨未绸缪，挑灯孤影欲还休。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
