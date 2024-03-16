@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-希望你别像风，在我这里面掀起万翻般波澜，却又跟云去了远方。 --如风过境
+相恨不如潮有信，相思始觉海非深。 --白居易
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
