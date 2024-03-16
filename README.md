@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当遇到你时，大脑连上CSGO都会掉帧。 --Florence
+呐，做人呢，最重要的是开心，你饿不饿，我煮碗面给你吃啊。 --周星驰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
