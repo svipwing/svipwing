@@ -19,7 +19,7 @@
 ![](https://raw.githubusercontent.com/svipwing/svipwing/main/photo.png)
 
 ```
-相恨不如潮有信，相思始觉海非深。 --白居易
+当人们做不到一些事情的时候，他们会对你说你也同样不能。 --克里斯·加德纳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
