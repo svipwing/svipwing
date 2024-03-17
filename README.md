@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-I like you, but just like you. --佚名
+神即道，道即法，道法自然，如来。 --豆豆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
