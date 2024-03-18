@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-急雨收残暑，梧桐一叶惊。 --吴承恩
+一别都门三改火，天涯踏尽红尘。 --苏轼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
