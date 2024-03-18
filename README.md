@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你，对，你，就是你，你是你。 --不到啊
+急雨收残暑，梧桐一叶惊。 --吴承恩
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
