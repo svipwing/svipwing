@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你为了你的正义，我为了我的正义。 --佚名
+因为失去,所以明白。 --漩涡鸣人
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
