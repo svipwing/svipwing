@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-时间能治愈一切伤痛。 --佚名
+悄悄地想你，波澜不惊。 --别云
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
