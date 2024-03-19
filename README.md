@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-悄悄地想你，波澜不惊。 --别云
+丈夫非无泪，不洒离别间。 --陆龟蒙
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
