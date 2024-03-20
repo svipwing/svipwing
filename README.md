@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-祝你，生生不息，前程似锦。 --归璨
+要保持希望在每天清晨太阳升起。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
