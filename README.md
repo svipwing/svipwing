@@ -19,7 +19,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-落叶他乡树，寒灯独夜人。 --马戴
+世界上哪有不会输的英雄啊。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
