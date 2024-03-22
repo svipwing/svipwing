@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-一沈秋园，满庭霜落，云烟北桥夜连城。 --佚名
+小时候哭着哭着就笑了，长大后笑着笑着就哭了。 --Declan
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
