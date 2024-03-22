@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-小时候哭着哭着就笑了，长大后笑着笑着就哭了。 --Declan
+搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
