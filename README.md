@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你的选择，毫无意义。 --Toby Fox
+用自己的双脚丈量土地，将未知变为知识。 --阿贝多
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
