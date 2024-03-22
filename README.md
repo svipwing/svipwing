@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-搞怪的不是红绿灯，而是我数不清的犹豫。 --佚名
+你的选择，毫无意义。 --Toby Fox
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
