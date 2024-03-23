@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-Hand down,man down. --佚名
+我相信群众的革命意识最终会将革命之火带回。 --瓦列里•萨布林
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
