@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-月色与雪色之间，你是第三种绝色。 --佚名
+记忆付诸生命之时，时间亦将付诸生命。 --JLD
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
