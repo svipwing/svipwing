@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-多巴胺不等于爱情，爱情却一定有多巴胺！ --不在爱里迷失
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
