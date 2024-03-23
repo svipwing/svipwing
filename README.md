@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-大家都是伪善者，世间充斥着不真实。 --佚名
+老子就是一门炮。 --伍万里
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
