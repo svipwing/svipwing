@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-举手长劳劳,二情同依依. --佚名
+あなたは敵だけど悪くない。 --水门
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
