@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-あなたは敵だけど悪くない。 --水门
+就算是堕落浪子，也能力挽狂澜。 --方绪
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
