@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-独乐乐不如众乐乐。 --孟子
+风吹柳叶遮黄雀，薄翅不觉已落蝉。 --李落蝉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
