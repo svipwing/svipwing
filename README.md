@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当遇到你时，大脑连上CSGO都会掉帧。 --Florence
+当你真正想做成一件事情的时候，就连天地万物都会帮你。 --褚嬴
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
