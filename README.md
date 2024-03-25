@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你特殊的遭遇并不是你可以特殊的理由。 --CrankAR
+我们就这样，生活在此地并不断离别。 --后崩坏书
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
