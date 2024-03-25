@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-即使无法掌握未来，也请不要忘了明天。 --佚名
+你特殊的遭遇并不是你可以特殊的理由。 --CrankAR
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
