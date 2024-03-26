@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-“你失去了”
+我们都在阴沟里，但仍然有人仰望星空。 --王尔德
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
