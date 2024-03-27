@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命如意志永存，青春永远年轻。 --安
+不为梦想本身奋斗。为那个提出梦想的自己。 --pokon548
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
