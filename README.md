@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-所爱隔山海，山海不可平。 --littlesen
+我没有梦想，但我可以守护别人的梦想！ --乾巧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
