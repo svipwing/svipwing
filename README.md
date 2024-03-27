@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-不为梦想本身奋斗。为那个提出梦想的自己。 --pokon548
+所爱隔山海，山海不可平。 --littlesen
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
