@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要太小看人类了！ --佚名
+这两个过早的品尝了人世沧桑的孩子一见如故。 --J.K.罗琳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
