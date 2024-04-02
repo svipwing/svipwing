@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-工程穷三代，考古毁一生。 --佚名
+珍爱生命，不要小病变大病，大病拖没命。 --Yang
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
