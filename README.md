@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-珍爱生命，不要小病变大病，大病拖没命。 --Yang
+不敢反抗压迫的心理将伴你一生 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
