@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我不要你忘记他 , 我只要你记得我 --佚名
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
