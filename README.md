@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-实践是检验真理的唯一标准。 --佚名
+剃刀边缘怎能起造伽蓝。 --木心
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
