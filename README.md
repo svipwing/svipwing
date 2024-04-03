@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢慢来，谁还没有一个努力的过程。 --pony
+有情人终成眷属，没钱人亲眼目睹。 --快手评论
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
