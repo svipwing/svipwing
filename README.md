@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-实践是检验真理的唯一标准。 --佚名
+失落至极致，是虚无。 --GoodChing
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
