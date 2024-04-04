@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-丢下一些包袱后，你会惊讶地发现，原来自己可以飞得那么高。 --佚名
+抬头看向星空，低头遍地焦土。 --DreamStars
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
