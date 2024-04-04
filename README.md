@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-失落至极致，是虚无。 --GoodChing
+这雨生于天，死于地，中间的过程就是人生。 --耳根
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
