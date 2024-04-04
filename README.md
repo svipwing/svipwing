@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-抬头看向星空，低头遍地焦土。 --DreamStars
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
