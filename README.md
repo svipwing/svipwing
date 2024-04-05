@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-世界之大为何我们相遇，难道是缘分，难道是天意。 --曲婉婷
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
