@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-永远年轻，永远热泪盈眶。 --Jack Kerouac
+弱小和无知从来都不是生存的障碍，傲慢才是！！ --刘慈欣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
