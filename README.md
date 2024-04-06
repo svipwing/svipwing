@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-宣父犹能畏后生，丈夫未可轻年少。 --李白
+永远年轻，永远热泪盈眶。 --Jack Kerouac
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
