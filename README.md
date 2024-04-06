@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-谎言从不伤人，真相才是快刀。 --卡蜜尔
+生活和漫画里面的那种热血还是不一样的。 --Tim
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
