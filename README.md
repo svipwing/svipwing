@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-旧岁方辞，千户夜明烟火庆；新年甫至，万候肇始气象新 。 --旅禾Tristan
+不努力，怎么对的起你的喜欢呢。 --xy0313
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
