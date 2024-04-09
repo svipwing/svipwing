@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-举世皆浊我独清，众人皆醉我独醒。 --屈原
+旧岁方辞，千户夜明烟火庆；新年甫至，万候肇始气象新 。 --旅禾Tristan
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
