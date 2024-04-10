@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-只有登上山顶，才能看到那边的风光。 --佚名
+记忆是痛苦的根源。 --周星驰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
