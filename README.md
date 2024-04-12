@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-结局是什么，我们自己决定！ --郑重生
+当然是教你们养鸡啦，将优等种的德意志鸡推广到全世界！ --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
