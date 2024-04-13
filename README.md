@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当然是教你们养鸡啦，将优等种的德意志鸡推广到全世界！ --The New Order:Last Days of Europe
+每一个人活着，本质上都是对自己的不信任。 --浮生若梦
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
