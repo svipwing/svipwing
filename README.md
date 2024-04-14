@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-向着风，拥抱彩虹。 --阿冗
+犹豫，就会败北。 --苇名一心
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
