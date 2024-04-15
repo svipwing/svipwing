@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-生生生生暗生始，死死死死冥死终。 --空海法师
+我们都在假装坚不可摧，其实一触即碎。 --Eternal_Battle
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
