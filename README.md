@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-小鸟......是无法追上飞龙的。 --佚名
+所爱隔山海，山海皆可平。 --Littlesen
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
