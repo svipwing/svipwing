@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-所爱隔山海，山海皆可平。 --Littlesen
+幸运的人一生都在被童年治愈，不幸的人一生都在治愈童年。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
