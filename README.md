@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人与人的相遇，不是恩赐就是劫。 --ShimmerLS
+我还在原地等你 你却已经忘记来过这里 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
