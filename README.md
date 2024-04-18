@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-不驰于空想，不骛于虚声。 --佚名
+刚好知交，刚好欢笑，刚好闪耀。 --陈亦洺
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
