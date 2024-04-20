@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你强归你强，我永不示弱。 --佚名
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
