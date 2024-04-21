@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-不愿勾起相思，不敢出门看月；偏偏月进窗来，害我相思一夜。 --胡适
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
