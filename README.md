@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们就这样，生活在此地并不断离别。 --后崩坏书
+无眠之夜黑混沌，她忘点灯昏红阵。 --Awoluua_
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
