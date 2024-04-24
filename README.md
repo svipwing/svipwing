@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-最短的捷径就是绕远路。 --杰洛·齐贝林
+没有人的文明毫无意义。 --马兆
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
