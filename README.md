@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-闪烁的灯光是我在异世界大声地呼唤你。 --佚名
+听得懂与聊得来多难得。 --lojoy
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
