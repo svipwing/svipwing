@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-寂寞嫦娥舒广袖，万里长空且为忠魂舞。 --毛泽东
+群青色的天空，是自由的象征。 --Yunomi
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
