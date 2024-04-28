@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-美人自古如名将，不许人间见白头。 --佚名
+记忆是痛苦的根源。 --周星驰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
