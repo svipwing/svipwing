@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-记忆是痛苦的根源。 --周星驰
+迎着风，拥抱彩虹！ --黄霄雲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
