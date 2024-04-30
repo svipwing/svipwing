@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-impossible的完整形式是i'm possible --佚名
+不敢打开信封啊。因为，打开了就结束了啊。 --三千院凪
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
