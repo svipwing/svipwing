@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-慢慢来，谁还没有一个努力的过程。 --pony
+世界上没有一条河不拐弯，但最终都要流向大海。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
