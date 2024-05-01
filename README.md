@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-拼命奔跑，华丽跌倒。人山人海，边走边爱。 --佚名
+每天都是绝版。 --鱼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
