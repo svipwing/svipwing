@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-I will always be here for you. --佚名
+在不同的遭遇里我发现你的瞬间，有种不可言说的温柔直觉。 --郭顶
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
