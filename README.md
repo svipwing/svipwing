@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-明月出天山，苍茫云海间。 --李白
+学习知识是为了提出更好的问题。 --帆仔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
