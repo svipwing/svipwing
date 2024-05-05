@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-跨越光年，归来任是你。 --佚名
+东边日出西边雨，道是无晴却有晴。 --刘禹锡
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
