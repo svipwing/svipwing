@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我乃死，我乃生。我为暗，我亦为光。 --佚名
+Explotion！ --慧慧
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
