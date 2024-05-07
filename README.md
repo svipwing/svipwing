@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+你站在高处，就少往下看。 --rgo142
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
