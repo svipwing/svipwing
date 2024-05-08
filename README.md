@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-毁灭你，与你有何相干? --刘慈欣
+说时依旧,有泪如倾 --三毛
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
