@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-说时依旧,有泪如倾 --三毛
+自古逢秋悲寂寥，我言秋日胜春朝。 --刘禹锡
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
