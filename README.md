@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-逝者已矣，生者如斯。 --杜甫
+毁灭你，与你有何相干? --刘慈欣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
