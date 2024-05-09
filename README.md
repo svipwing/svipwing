@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-归期未如佳期至，巴山夜雨留荒词。 --佚名
+当你足够期待失望时，你就永远不会失望。 --MJ
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
