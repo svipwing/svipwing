@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当你足够期待失望时，你就永远不会失望。 --MJ
+恰沐春风共同游，终只叹，木已舟。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
