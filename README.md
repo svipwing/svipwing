@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-生命中，再无聊的时光，也都是限量版。 --佚名
+不为梦想本身奋斗。为那个提出梦想的自己。 --pokon548
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
