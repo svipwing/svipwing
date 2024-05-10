@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-曾与美人桥上别，恨无消息到今朝。 --刘禹锡
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
