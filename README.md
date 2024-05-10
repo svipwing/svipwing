@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人与人的相遇，不是恩赐就是劫。 --ShimmerLS
+我们执着于寻找对方缺少的品质，真是太傻了。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
