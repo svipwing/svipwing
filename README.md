@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-生当复来归，死当长相思。 --佚名
+风声细碎烛影乱，相思浓时情转淡。 --陈涛
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
