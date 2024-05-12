@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-这不是神经病，是理想 --佚名
+感时花溅泪，恨别鸟惊心。 --杜甫
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
