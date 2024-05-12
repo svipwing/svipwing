@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为失去,所以明白。 --漩涡鸣人
+城南小陌又逢春，只见梅花不见人。 --陆游
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
