@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-迎着风，拥抱彩虹！ --黄霄雲
+学而不厌，诲人不倦。 --孔子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
