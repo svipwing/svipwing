@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+我希望我能有一点点的时间，来治愈日益强烈的疼痛。 --Irony
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
