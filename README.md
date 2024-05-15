@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-朋友之交，宜得删繁就简。 --佚名
+漠漠水田飞白鹭，阴阴夏木啭黄鹂。 --王维
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
