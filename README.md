@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-世事易变，匪石弗转。 --钟离
+Everyting Goes On. --星之守护者
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
