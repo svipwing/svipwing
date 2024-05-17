@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-巧合是上帝默默操控世界的方式。 --爱因斯坦
+东隅已逝，桑榆非晚。 --王勃
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
