@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿留在Minecraft，也不愿回到现实。 --佚名
+一切都将成为过去。 当一切都将成为过去的时候你得到了什么? --朴素
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
