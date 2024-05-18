@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-今天我就要带她走，我看谁敢拦我 --佚名
+每天都是绝版。 --鱼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
