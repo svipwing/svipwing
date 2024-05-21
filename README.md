@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-恰沐春风共同游，终只叹，木已舟。 --佚名
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
