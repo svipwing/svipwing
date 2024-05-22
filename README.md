@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-友情很重要，会影响到很多人。 --派蒙
+我会尽力不犯错的…… --冥界使者哈娜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
