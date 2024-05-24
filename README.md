@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-那不是温柔，那不过是软弱罢了 --佚名
+遗忘比绝望更强有力。 --叔本华
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
