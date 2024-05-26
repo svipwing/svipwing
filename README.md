@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-后来，错过也成了人间常态。 --焦糖and瓜子
+我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
