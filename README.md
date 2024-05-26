@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人类侥幸拥有了智慧，就应该善用它。 --王小波
+后来，错过也成了人间常态。 --焦糖and瓜子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
