@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人是要整活的——没活了，可不就是死了么？ --佚名
+有朝一日，是否会有人纪念他们。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
