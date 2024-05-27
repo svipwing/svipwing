@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-物质与意识的辩证关系：物质决定意识，意识反作用于物质。 --佚名
+他是终日不化的冰山，遇见极圈不落的骄阳。 --TinSunset
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
