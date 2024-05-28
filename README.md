@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-虽有遗憾，绝不后悔。 --佚名
+人到情多情转薄，而今真个不多情。 --纳兰性德
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
