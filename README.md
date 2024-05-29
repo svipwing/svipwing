@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-命运的绑架没有救赎，你我皆是上帝的囚徒。 --佚名
+往事真的不堪回首吗？ --Ajiang
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
