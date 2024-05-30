@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你的生命已如风中残烛。 --佚名
+你，对，你，就是你，你是你。 --不到啊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
