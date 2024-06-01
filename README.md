@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-嗨！别来无恙啊！ --微软
+你所有的大张旗鼓地表达，只是想换来一个能注意你的人。 --MJEnvieBelle
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
