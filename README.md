@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你所有的大张旗鼓地表达，只是想换来一个能注意你的人。 --MJEnvieBelle
+因为你喜欢海，所以我一直浪。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
