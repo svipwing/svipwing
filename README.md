@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-玲珑骰子安红豆，入骨相思知不知。 --温庭筠
+你所做的一切，都是在重复昨天。 --LinF2333
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
