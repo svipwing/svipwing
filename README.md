@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-三个人沐浴在生命的暴雨之中，感受着地球生命的尊严。 --刘慈欣
+I'm nothing without you. --Clifford Devo
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
