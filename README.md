@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-犹豫，就会败北。 --苇名一心
+葡萄美酒夜光杯，欲饮琵琶马上催。 --王翰
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
