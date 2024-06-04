@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-心有猛虎，细嗅蔷薇。 --Siegfried Sassoon
+倘若是为了爱而放弃一切，最终连同这份爱意都会丧失掉。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
