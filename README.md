@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-大丈夫立世无所畏惧。 --云天青
+心有猛虎，细嗅蔷薇。 --Siegfried Sassoon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
