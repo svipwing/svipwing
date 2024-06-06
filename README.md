@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-眼看他起朱楼，眼看他宴宾客，眼看他楼塌了。 --佚名
+趁着年轻，好好犯病。 --he
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
