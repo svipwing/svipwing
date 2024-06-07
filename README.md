@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-孙大圣，快收了神通吧！ --佚名
+让美丽的夜空带我们踏过平庸。 --南仁东
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
