@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-双向奔赴，丝线重合，我们仰头探望，便是树状星辰。 --BlankAo
+真正的大师永远怀着一颗学徒的心。 --无极剑圣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
