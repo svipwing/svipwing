@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-星星之火，可以燎原。 --毛泽东
+疏影横斜水清浅，暗香浮动月黄昏。 --林逋
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
