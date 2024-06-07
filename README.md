@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当太阳落山以后，烛光永无法替代。 --佚名
+双向奔赴，丝线重合，我们仰头探望，便是树状星辰。 --BlankAo
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
