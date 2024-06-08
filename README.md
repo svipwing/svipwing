@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-直到看见她和别人恋爱的模样，才发现自己从来没被爱过。 --佚名
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
