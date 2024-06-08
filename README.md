@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你无法比此刻更年轻 --佚名
+这无缘无故的攀比之心，是从何而来啊？ --钟离
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
