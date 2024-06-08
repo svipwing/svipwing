@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+你看她笑靥如花，恰似此间神话。 --渊鱼
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
