@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+三尺书生，一介微命。 --王勃
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
