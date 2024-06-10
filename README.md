@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生而自由，却无往不在枷锁中。 --卢梭
+所见即所得，所想及所见。 --GoodChing
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
