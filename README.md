@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-所见即所得，所想及所见。 --GoodChing
+你现在的气质里，藏着你走过的路，读过的书和爱过的人。 --迈克尔·柯蒂茲
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
