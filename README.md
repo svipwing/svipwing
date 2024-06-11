@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+一个细胞里，却分裂出了两种截然不同的命运。 --秦明
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
