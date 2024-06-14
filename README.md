@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-成长的过程就是人生的意义。 --玖⁠
+谎言重复一千遍就成了真理。 --戈培尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
