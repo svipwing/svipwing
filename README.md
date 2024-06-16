@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-一旦开始，便难以回头。 --Billie Eilish
+就算终有一散也别辜负相遇。 --网络
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
