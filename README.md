@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-死亡不属于工人阶级！ --弗拉基米尔·伊里奇·列宁
+一旦开始，便难以回头。 --Billie Eilish
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
