@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-为学日益，为道日损。 --李耳
+你背朝太阳，就只能看到自己的影子。 --纪伯伦
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
