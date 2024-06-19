@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我受到了召唤，我必须回应，一如既往。 --佚名
+我喝过你喝的西北风，这算不算很穷。 --妤儿_moon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
