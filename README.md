@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-切尔诺贝利——人间禁地，动物的乐园。 --The New Order:Last Days of Europe
+从不犯错误的人终将一事无成 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
