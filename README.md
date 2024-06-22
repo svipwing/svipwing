@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-为难当前，唯有责任。 --周喆直
+北方有佳人，绝世而独立。 --李延年
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
