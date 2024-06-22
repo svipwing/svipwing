@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人不患不知人，患不知己。 --佚名
+为难当前，唯有责任。 --周喆直
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
