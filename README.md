@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-这就是好奇的代价！ --佚名
+这世界是为我存在的！ --盗贼杀手莉娜
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
