@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-爱迪生说过：“要把BOSS打倒就要准备足够的等级。” --佚名
+愿你和重要的人，在来日重逢。 --艾拉
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
