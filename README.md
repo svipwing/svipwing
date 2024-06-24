@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-风停之后再扬帆，船绝不会前行。 --佚名
+善思博学，努力进取。 --张万军
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
