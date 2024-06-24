@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-足吾所好，玩而老焉 --佚名
+一辈子，能坚持做好一件事就很伟大了！ --柯钊
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
