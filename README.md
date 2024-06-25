@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-善思博学，努力进取。 --张万军
+红酥手，黄縢酒，满城春色宫墙柳。 --陆游
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
