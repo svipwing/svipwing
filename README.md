@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-一个人无法自成孤岛，要么至少，一个人无法自成最理想的孤岛。 --佚名
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
