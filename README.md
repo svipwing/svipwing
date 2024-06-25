@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-行远自迩，登高自卑。 --戴圣
+谎言不会伤人，真相才是快刀。 --卡密尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
