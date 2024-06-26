@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当遇到你时，大脑连上CSGO都会掉帧。 --Florence
+资本来到世间，从头到脚每个毛孔都滴着血和肮脏的东西。 --卡尔·海因里希·马克思
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
