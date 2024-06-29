@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-现在的魏无羡，离开了蓝忘机就不行。 --佚名
+别赶路，去感受路。 --沃尔沃
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
