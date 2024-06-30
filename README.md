@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-程序漏洞叫特性，设计漏洞叫特色 --佚名
+为学日益，为道日损。 --李耳
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
