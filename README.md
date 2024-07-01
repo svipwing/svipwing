@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-兼山艮，君子以思不出其位。 --佚名
+恐惧意味着“软弱”。 --新海诚
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
