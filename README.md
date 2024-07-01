@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-恐惧意味着“软弱”。 --新海诚
+不要祈求生活公平，只需要适应它。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
