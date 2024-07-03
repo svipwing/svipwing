@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-因为你喜欢海，所以我一直浪。 --佚名
+断剑重铸之日，骑士归来之时。 --锐雯
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
