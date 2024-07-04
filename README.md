@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人与人的相遇，不是恩赐就是劫。 --ShimmerLS
+人生三大错觉，我能反杀，下一发能出金，她喜欢我。 --林清凝
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
