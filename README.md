@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-Think twice, code once. --佚名
+我们执着于寻找对方缺少的品质，真是太傻了。 --Walter
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
