@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-霸者之作，其论博也 --佚名
+有些人光是遇到就已经赚到了。 --赵紫骅
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
