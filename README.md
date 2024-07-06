@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+宁教我负天下人，休教天下人负我。 --曹操
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
