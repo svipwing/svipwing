@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人与人的相遇，不是恩赐就是劫。 --ShimmerLS
+思君如满月，夜夜减清辉。 --张九龄
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
