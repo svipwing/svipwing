@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人没有回忆是无法活下去的哟 --佚名
+谎言不会伤人，真相才是快刀。 --卡密尔
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
