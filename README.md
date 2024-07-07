@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-相思似海深，旧事如天远。 --乐婉
+让子弹飞一会儿！ --张麻子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
