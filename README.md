@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我的名字，是奥里。 --奥里
+有朝一日，是否会有人纪念他们。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
