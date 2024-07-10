@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果不能忠于自己的心，胜负又有什么价值呢？ --佚名
+胡思乱想到头疼。 --YYQ
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
