@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-胡思乱想到头疼。 --YYQ
+又能逃到哪里去，你我都各有困局。 --雲姑
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
