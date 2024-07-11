@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-平安喜乐，万事胜意。 --佚名
+落尽红缨君不见，轻绘梨花泪沾衣。 --江南
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
