@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-悄悄地想你，波澜不惊。 --别云
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
