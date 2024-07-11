@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-落尽红缨君不见，轻绘梨花泪沾衣。 --江南
+悄悄地想你，波澜不惊。 --别云
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
