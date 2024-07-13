@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你只需看着别人精彩，老天对你另有安排 --佚名
+唯有再见方为人生。 --太宰治
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
