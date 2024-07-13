@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-西塞山前白鹭飞，桃花流水鳜鱼肥。 --张志和
+珍爱生命，不要小病变大病，大病拖没命。 --Yang
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
