@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-花火みたいな綺麗な人になれば 良かったかな --佚名
+我只是希望能够超越自己。 --HONTARG
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
