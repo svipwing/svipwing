@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-拼命奔跑，华丽跌倒。人山人海，边走边爱。 --佚名
+任何足够先进的技术都与魔法无异。 --Arthur Charles Clarke
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
