@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我本来不想使出这一招的 --佚名
+时光会把你雕刻成你应有的样子。 --时光
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
