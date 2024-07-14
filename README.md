@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-任何足够先进的技术都与魔法无异。 --Arthur Charles Clarke
+人生，三十年前看爹敬儿，三十年后看儿敬爹！ --白给少年洛初
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
