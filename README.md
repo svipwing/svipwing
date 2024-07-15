@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-兰有秀兮菊有芳，怀佳人兮不能忘。 --刘彻
+要邃晓你的处境，凡人！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
