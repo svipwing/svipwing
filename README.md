@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有人的文明毫无意义。 --马兆
+阿虚，电话。 --阿虚妹妹
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
