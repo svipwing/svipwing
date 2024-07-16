@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-Technoblade never dies! --佚名
+幻术世界有什么不好，现实太残酷，只会让这空洞越来越大。 --带土
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
