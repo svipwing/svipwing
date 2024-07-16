@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人恰得亏，戏不好看。 --佚名
+顺为凡，逆则仙，只在心中一念间…… --耳根
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
