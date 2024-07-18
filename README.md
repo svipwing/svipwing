@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-阳光洒落，冰冷的眼中，澄澈入海却依旧向往自由。 --白颜yaku
+看似美好的东西，往往藏着陷阱。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
