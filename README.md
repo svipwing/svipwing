@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-海内存知己，天涯若比邻。 --王勃
+瞬间即是永恒！ --凯撒亮
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
