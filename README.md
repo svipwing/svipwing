@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生路上，岔路口。如何走？自己的路。 --GoodChing
+天作孽，犹可违，自作孽，不可活。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
