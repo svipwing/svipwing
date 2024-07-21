@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-瞬间即是永恒！ --凯撒亮
+人生路上，岔路口。如何走？自己的路。 --GoodChing
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
