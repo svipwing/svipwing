@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-来吧，南无三！ --白莲
+时人不识凌云木，直待凌云始道高。 --杜荀鹤
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
