@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-露从今夜白，月是故乡明。 --杜甫
+诸行无常、诸法无我、涅槃喧嚣。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
