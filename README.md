@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-痴情的妖怪啊,请再等一世吧。 --佚名
+露从今夜白，月是故乡明。 --杜甫
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
