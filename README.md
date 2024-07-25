@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-在战略上要藐视敌人，在战术上要重视敌人！ --毛主席
+电脑的处理器总比执行单元小。 --licorp
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
