@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+过去的都该过去，值得记忆的才要留到现在。 --Naya
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
