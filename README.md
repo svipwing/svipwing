@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-生活和漫画里面的那种热血还是不一样的。 --Tim
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
