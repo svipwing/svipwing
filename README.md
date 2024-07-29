@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-大本钟下送快递——上面摆，下面寄。 --记得
+逸一时，误一世。 --田所浩二
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
