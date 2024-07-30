@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-故人西辞黄鹤楼，烟花三月下扬州。 --李白
+剃刀边缘怎能起造伽蓝。 --木心
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
