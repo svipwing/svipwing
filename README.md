@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-臣鞠躬尽瘁，死而后已。 --诸葛亮
+You complete me ! --joker
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
