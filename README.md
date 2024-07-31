@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-You complete me ! --joker
+我觉得百无聊赖，可我却经常什么事也不干。 --陀思妥耶夫斯基
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
