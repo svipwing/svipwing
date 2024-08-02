@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-做一杯奶茶，去去不到的地方给想见的人！ --安麻殿
+Why so serious? --小丑
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
