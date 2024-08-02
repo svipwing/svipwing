@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你看，那个人好像一只狗诶。 --佚名
+最终，森林会记住一切…… --原神
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
