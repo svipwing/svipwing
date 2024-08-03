@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-最有名的莫过于想死一次吗。 --佚名
+系我一生心，负你千行泪。 --柳永
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
