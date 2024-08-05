@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-这世界太大，勇敢的少年奔赴天涯。 --陈可心
+让子弹飞一会儿！ --张麻子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
