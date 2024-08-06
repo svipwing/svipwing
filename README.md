@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-I'm nothing without you. --Clifford Devo
+我希望兜兜转转之后那个人还是你。 --不要半夜躲在被子里哭了
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
