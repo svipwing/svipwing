@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-I will always be here for you. --佚名
+I'm nothing without you. --Clifford Devo
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
