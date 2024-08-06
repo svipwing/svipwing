@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-失去记忆的遗迹只是尊空壳。 --The New Order:Last Days of Europe
+谎言不会伤人，真相才是快刀。 --青钢影
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
