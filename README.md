@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-impossible的完整形式是i'm possible --佚名
+要知道，一个文学人物十分钟的行为，可能是她十年的经历的反映。 --刘慈欣
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
