@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有绝对的废物，只有放错位置的资源。 --上海市垃圾分类
+I'm nothing without you. --Clifford Devo
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
