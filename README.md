@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-这个城市大得让人到处能一见钟情，却没法重逢。 --佚名
+趁着年轻，好好犯病。 --he
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
