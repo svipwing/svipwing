@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+失去故土的花朵，回不去，却也离不开。 --夏达
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
