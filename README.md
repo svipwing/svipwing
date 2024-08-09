@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-方向比速度重要。 --巴菲特
+唯有信仰与日月亘古不灭。 --会说话的肘子
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
