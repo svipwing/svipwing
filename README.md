@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-若以色见我，以音声求我，是人行邪道，不能见如来。 --鸠摩罗什
+心有猛虎，细嗅蔷薇。 --Siegfried Sassoon
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
