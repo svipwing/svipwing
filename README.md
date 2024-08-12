@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-趁着年轻，好好犯病。 --he
+没有真正的快乐，除非找到……你爱的那个人。 --绎泽
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
