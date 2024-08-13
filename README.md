@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-谁说站在光里的才算英雄。 --唐恬
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
