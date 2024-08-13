@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-控兄是我的个性的同时，也是勋章！ --佚名
+谁说站在光里的才算英雄。 --唐恬
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
