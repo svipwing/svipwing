@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-人生于我，一场豪赌而已。 --刘慈欣
+我已在这可怕的控制欲中溺毙。 --Vikey安凝柠
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
