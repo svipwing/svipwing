@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我已在这可怕的控制欲中溺毙。 --Vikey安凝柠
+控兄是我的个性的同时，也是勋章！ --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
