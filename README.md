@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-黑，真他妈的黑啊。 --佚名
+没有理所当然的帮忙，只有个人素养的体现。 --loki
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
