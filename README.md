@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-身为冒险者，如果安静的老死在床上，那简直就是耻辱！ --跳舞
+黑色世界唯有东方的曙光。 --Google Translate
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
