@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-“I'a I'a.Cthulhu Fhatgn!” --佚名
+诸行无常、诸法无我、涅槃喧嚣。 --The New Order:Last Days of Europe
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
