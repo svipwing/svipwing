@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-诸行无常、诸法无我、涅槃喧嚣。 --The New Order:Last Days of Europe
+为你明灯三千，为你花开满城，为你所向披靡。 --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
