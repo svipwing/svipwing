@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-后来，错过也成了人间常态。 --焦糖and瓜子
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
