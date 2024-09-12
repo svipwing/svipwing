@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-你是故意找茬是不是？ --华强
+当代价不再重要，人们也会对恐惧有所遗忘。 --The New Order:Last Days of Europe
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
