@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当代价不再重要，人们也会对恐惧有所遗忘。 --The New Order:Last Days of Europe
+对于虚伪而言，真实的光明或许过于耀眼了 --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
