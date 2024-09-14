@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-伊甸园的存在，是为证明世界的罪恶。 --The New Order:Last Days of Europe
+物是人非事事休，欲语泪先流。 --李清照
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
