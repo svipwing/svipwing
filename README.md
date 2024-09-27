@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-乱世邯郸生祖龙，书文四方车轨同，青山秋草树丛从。 --The New Order:Last Days of Europe
+神即道，道即法，道法自然，如来。 --豆豆
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
