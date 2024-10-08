@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-曲终人散，黄粱一梦，该醒了！ --EndPoem
+承蒙遇见，三生有幸 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
