@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们哭着降临世界，却可以笑着走向永恒。 --如果国宝会说话
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
