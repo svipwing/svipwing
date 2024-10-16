@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-在放弃之前，成功的可能性永远不会归零。 --北城不夏
+切尔诺贝利——人间禁地，动物的乐园。 --The New Order:Last Days of Europe
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
