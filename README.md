@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-没有BUG的代码是不完美的！ --Sodium_Sulfate
+天平山上白云泉，云自无心水自闲。 --白居易
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
