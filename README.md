@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-忽见陌头杨柳色，悔教夫婿觅封侯。 --王昌龄
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
