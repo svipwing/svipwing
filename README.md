@@ -21,7 +21,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-任何一件事都具有两面性。 --佚名
+诺你已经陷入黑暗，那你离死亡不远了！ --Mr_cgdn
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
