@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-有志者，事竟成。 --佚名
+就像开始的那个点，一切都是命中注定。 --Saliva
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
