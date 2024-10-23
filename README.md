@@ -1,11 +1,12 @@
 - 👋 你好, 我是 svipwing
-- 🌱 我正在学习 网络安全
+- 🌱 我正在学习 获得csp一等奖
 - 熟练掌握的语言：html、css、js、nodejs、jquery、php、mysql、C++、python
-- 开发工具：vscode、git
+- 会一点但不多的：网络安全、java
+- 开发工具：vscode、git、devcpp、code::blocks
 - 📫 我的邮箱：3260130869@qq.com
 - 我的QQ：3260130869
 - 我的gitee地址：https://gitee.com/svipwing
-- 我的兴趣爱好：写代码
+- 我的兴趣爱好：写代码、聊天、打比赛、切水题、出比赛题
 - 我的代表作：短链接系统、网页开发助手
 
 ![](metrics.classic.svg)
