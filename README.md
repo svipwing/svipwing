@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-“哦,要进画里了,孩子们,走好。”——将被二维化的罗辑 --佚名
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
