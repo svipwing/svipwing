@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-也许我或者“我们”，终有一天能自由地生存着。 --清华THUPC出题方
+人与人的相遇，不是恩赐就是劫。 --ShimmerLS
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
