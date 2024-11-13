@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-执着与进退？这是个问题。 --GoodChing
+云销雨霁，彩彻区明。 --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
