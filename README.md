@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-金风玉露一相逢，便胜却、人间无数。 --秦观
+I will always be here for you. --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
