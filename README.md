@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-假如失去追寻的动力，人类将消失在永恒的黑暗中。 --Do As Infinity
+神即道，道即法，道法自然，如来。 --豆豆
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
