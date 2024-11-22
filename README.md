@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-苍天璧络天一络，雅月鸿灵月正灵。 --佚名
+金子与钻石都不是唯一的，可你却是。 --Enthon
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
