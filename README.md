@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-天生我材必有用，千金散尽还复来。 --李白
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
