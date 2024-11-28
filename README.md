@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-每天都是新的一天，有好运比什么都强。 --契约千魂
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
