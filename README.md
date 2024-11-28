@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-愿我的人民，永远，不要被那些无关紧要的差别，所迷惑。 --萨尔
+I'm nothing without you. --Clifford Devo
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
