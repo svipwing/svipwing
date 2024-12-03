@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-若不是对自己没信心，我怎会努力？ --NiuBoss123
+当丁达尔效应出现时，光便有了形状。 --未知
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
