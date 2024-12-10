@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-任何足够先进的技术都与魔法无异。 --Arthur Charles Clarke
+多情却被无情恼，今夜还如昨夜长。 --元好问
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
