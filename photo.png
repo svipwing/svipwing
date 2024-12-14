@@ -1,6 +1,6 @@
 <br />
 <b>Fatal error</b>:  Uncaught RedisException: MISCONF Redis is configured to save RDB snapshots, but it is currently not able to persist on disk. Commands that may modify the data set are disabled, because this instance is configured to report errors during writes if RDB snapshotting fails (stop-writes-on-bgsave-error option). Please check the Redis logs for details about the RDB error. in /share/html/api/img/index.php:93
 Stack trace:
-#0 /share/html/api/img/index.php(93): Redis-&gt;set('api/img/_time/b...', 1734128125)
+#0 /share/html/api/img/index.php(93): Redis-&gt;set('api/img/_time/b...', 1734137808)
 #1 {main}
   thrown in <b>/share/html/api/img/index.php</b> on line <b>93</b><br />
