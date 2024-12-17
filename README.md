@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-隐藏的是心中的秘密，照耀两人的是star和snow…… --青山刚昌
+内心湛然，则无往而不乐。 --梁实秋先生
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
