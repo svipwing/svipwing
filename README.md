@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-耐心不是一种品德，而是唯一的品德。 --青钢影
+Why so serious? --小丑
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
