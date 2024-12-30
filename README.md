@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-Yesterday you said tomorrow. --NIKE
+似此星辰非昨夜，为谁风露立中宵。 --黄景仁
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
