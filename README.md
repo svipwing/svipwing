@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-呐~~凯利，你想成为怎样的大人。 --夏丽
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
