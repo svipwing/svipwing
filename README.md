@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-所爱隔山海，山海皆可平。 --Littlesen
+如果预计中的不幸没有发生的话，我们就会收获意外的喜悦。 --叔本华
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
