@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-如果每个人都能理解你，那么你得普通成什么样子。 --失忆北岛.
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
