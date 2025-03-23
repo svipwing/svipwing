@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-奋斗的目标就是为了躺平，就是为了过上不被闹钟叫醒的日子。 --佚名
+失去记忆的遗迹只是尊空壳。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
