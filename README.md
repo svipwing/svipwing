@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-失去记忆的遗迹只是尊空壳。 --The New Order:Last Days of Europe
+我们每个人都是往事的幸存者，最终学会的，都是如何和自己相处。 --卢思浩
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
