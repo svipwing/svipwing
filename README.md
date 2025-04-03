@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-一板一眼，就会滋生弱点。 --青钢影
+记忆，总会传承下去，无论是用何种方式。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
