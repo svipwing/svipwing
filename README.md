@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-跑得快不一定赢，不跌跟头才是成功 --佚名
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
