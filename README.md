@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-无次数的沉沦就是为了苏醒。 --耳根
+悲兮叹兮终餐亵，人度天度不涅槃。 --seyi
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
