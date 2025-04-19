@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-起来！歌唱！我们走向胜利！ --佚名
+晨意微寒秋渐深，侧伴无事俏佳人。 --Kazusa
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
