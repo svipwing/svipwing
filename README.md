@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-晨意微寒秋渐深，侧伴无事俏佳人。 --Kazusa
+什么叫忍者？学会忍耐的人就叫忍者。 --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
