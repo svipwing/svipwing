@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-当代价不再重要，人们也会对恐惧有所遗忘。 --The New Order:Last Days of Europe
+虽有遗憾，绝不后悔。 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
