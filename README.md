@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-You complete me ! --joker
+这个世纪疯狂，没人性，腐败；你却一直清醒，温柔，一尘不染。 --弗朗索瓦丝·萨冈
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
