@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-要活成两种样子 ，发光和不发光，不发光的时候都在为发光准备。 --佚名
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
