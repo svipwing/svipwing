@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-我们都在假装坚不可摧，其实一触即碎。 --Eternal_Battle
+接叶巢莺，平波卷絮，断桥斜日归船。 --张炎
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
