@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-别疑问，疑问就去找答案！ --Shawn
+伤心桥下春波绿，曾是惊鸿照影来。 --陆游
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
