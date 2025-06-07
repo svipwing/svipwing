@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-最后再来做个约定吧。一定会再次与你相遇...... --夏彦深见
+没有BUG的代码是不完美的！ --Sodium_Sulfate
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
 “我从未拥有” --佚名
