@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-好目睫之利者，利在害中而不弃；好终身之利者，利在目睫而不为。 --佚名
+无为而无不为，以不变应万变。 --SquareBlock
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
