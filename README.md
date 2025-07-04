@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-所爱隔山海，山海不可平。 --littlesen
+烦恼这东西，是只有活着的人，才有的特权哦。 --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
