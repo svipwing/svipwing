@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-离别使恋爱热烈，重逢则使它牢固。 --托•富勒
+当遇到你时，大脑连上CSGO都会掉帧。 --Florence
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
 “我从未拥有” --佚名
