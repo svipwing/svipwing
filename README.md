@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-Via Soul! --佚名
+九州生气恃风雷，万马齐喑究可哀。 --龚自珍
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
