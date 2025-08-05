@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-不想前进的时候，就暂且停下脚步吧♪ --Elysia.
+给时代以图论，给人生以动规。给当下以分治，给未来以递推。 --Zirconium
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
