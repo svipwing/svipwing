@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-就像是一场华尔街的阴谋，透露着优雅的杀戮。 --佚名
+我只是希望能够超越自己。 --HONTARG
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
