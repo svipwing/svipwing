@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-不要熄灭你的灵感及想象，不要成为你楷模的奴隶。 --佚名
+时间的意义取决于人类：千年如一日，一日复千年。 --The New Order:Last Days of Europe
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
