@@ -22,7 +22,7 @@
 ![](https://raw.github.com/svipwing/svipwing/main/photo.png)
 
 ```
-破解版的“爱情”APP，有吗？ --佚名
+不气盛能叫年轻人吗？ --刘华强
 “我从未拥有” --佚名
 “我从未拥有” --佚名
 回应是：爱慕虚荣、生活浮华、态度恶劣 --佚名
