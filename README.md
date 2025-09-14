@@ -1,10 +1,11 @@
-- 👋 你好, 我是 jishuya
-- 🌱 我正在学习 C++ 算法竞赛
-- 💻 熟练掌握的语言：HTML/CSS/Javascript、Nodejs、PHP、Python
-- 🔨 开发工具：Windows11、Edge、VSCode、Git、Dev-cpp
-- 📫 Email：3260130869@qq.com
-- 🐧 QQ：3260130869
-- 📚 Gitee：https://gitee.com/svipwing
+- 👋 Hi, I am jishuya.
+- 🌱 I'm learning C++ for the Informatics Olympiad.
+- 💻 Language: HTML/CSS/Javascript、Nodejs、PHP、Python
+- 🔨 Tools: Windows 11, Edge, Powertoys, Git, VSCode, Dev-cpp
+- 📫 Email: 3260130869@qq.com
+- 🐧 QQ: 3260130869
+- ⚙️ HomePage: [https://www.svipwing.xyz](https://www.svipwing.xyz)
+- 📚 Gitee: [https://gitee.com/svipwing](https://gitee.com/svipwing)
 
 ![](https://cdn.luogu.com.cn/upload/image_hosting/8j2usdxs.png)
 
